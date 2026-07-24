@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE THE STORIES of those [deniers of the truth] who lived before you never yet come within your ken - [the stories of] the people of Noah, and of [the tribes of] `Ad and Thamud, and of those who came after them? None knows them [now] save God. There came unto them their apostles with all evidence of the truth -but they covered their mouths with their hands and answered: "Behold, we refuse to regard as true the message with which you [claim to] have been entrusted; and, behold, we are in grave doubt, amounting to suspicion, about [the meaning of] your call to us!"* — **Ibrahim (14:9)**
+> 📖 *And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”* — **Al-Ankaboot (29:50)**
 <!-- quran-verse-end -->
 
 ---
