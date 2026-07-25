@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
+> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
 <!-- quran-verse-end -->
 
 ---
