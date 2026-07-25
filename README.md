@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Utterly remote, in His glory, is the Sustainer of the heavens and the earth - the Sustainer, in almigh­tiness enthroned from all that they may attribute to Him by way of definition!* — **Az-Zukhruf (43:82)**
+> 📖 *And to this end, God will efface from their record the worst that they ever did, and give them their reward in accordance with the best that they were doing [in life].* — **Az-Zumar (39:35)**
 <!-- quran-verse-end -->
 
 ---
