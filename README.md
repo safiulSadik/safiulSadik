@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who creates [all life] in the first instance, and then brings it forth anew: and most easy is this for Him, since His is the essence of all that is most sublime in the heavens and on earth, and He alone is almighty, truly wise.* — **Ar-Room (30:27)**
+> 📖 *[However,] it is no sin for them [to appear freely] before their fathers, or their sons, or their brothers, or their brothers’ sons, or their sisters’ sons, or their womenfolk, or such [male slaves] as their right hands may possess. But [always, O wives of the Prophet,] remain con­scious of God - for, behold, God is witness unto everything.* — **Al-Ahzaab (33:55)**
 <!-- quran-verse-end -->
 
 ---
