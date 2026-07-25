@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *And He it is who creates [all life] in the first instance, and then brings it forth anew: and most easy is this for Him, since His is the essence of all that is most sublime in the heavens and on earth, and He alone is almighty, truly wise.* — **Ar-Room (30:27)**
 <!-- quran-verse-end -->
 
 ---
