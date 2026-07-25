@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?* — **Muhammad (47:29)**
+> 📖 *[Since they have become oblivious of God,] corruption has appeared on land and in the sea as an outcome of what men’s hands have wrought: and so He will let them taste [the evil of] some of their doings, so that they might return [to the right path].* — **Ar-Room (30:41)**
 <!-- quran-verse-end -->
 
 ---
