@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if He so wills, He stills the wind, and then they lie motion­less on the sea’s surface - [and] herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grateful [to God];* — **Ash-Shura (42:33)**
+> 📖 *[As for such sinners,] behold, We [but] try them as We tried the owners of a certain garden who vowed that they would surely harvest its fruit on the morrow,* — **Al-Qalam (68:17)**
 <!-- quran-verse-end -->
 
 ---
