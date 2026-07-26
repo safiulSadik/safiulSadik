@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
 <!-- quran-verse-end -->
 
 ---
