@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *all that is with you is bound to come to an end, whereas that which is with God is everlasting. And most certainly shall We grant unto those who are patient in adversity their reward in accordance with the best that they ever did.* — **An-Nahl (16:96)**
 <!-- quran-verse-end -->
 
 ---
