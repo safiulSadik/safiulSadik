@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O my sons, go forth and try to obtain some tidings of Joseph and his brother; and do not lose hope of God's life-giving mercy: verily, none but people who deny the truth can ever lose hope of God's life-giving mercy.* — **Yusuf (12:87)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
