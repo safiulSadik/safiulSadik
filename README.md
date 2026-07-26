@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *all that is with you is bound to come to an end, whereas that which is with God is everlasting. And most certainly shall We grant unto those who are patient in adversity their reward in accordance with the best that they ever did.* — **An-Nahl (16:96)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
