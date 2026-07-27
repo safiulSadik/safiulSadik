@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;* — **Al-Mutaffifin (83:15)**
+> 📖 *But withal, if one is patient in adversity and forgives - this, behold, is indeed something to set one’s heart upon!* — **Ash-Shura (42:43)**
 <!-- quran-verse-end -->
 
 ---
