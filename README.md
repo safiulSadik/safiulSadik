@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, We have conveyed unto them the truth: and yet, behold, they are intent on lying [to them­selves]!* — **Al-Muminoon (23:90)**
+> 📖 *And [so,] convey to the believers the glad tiding that a great bounty from God awaits them;* — **Al-Ahzaab (33:47)**
 <!-- quran-verse-end -->
 
 ---
