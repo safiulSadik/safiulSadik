@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *excepting only such as attain to faith and do good works: and theirs shall be a reward unending!* — **At-Tin (95:6)**
+> 📖 *Say: “Verily, my Sustainer hurls the truth [against all that is false] He who fully knows all the things that are beyond the reach of a created being’s perception!”* — **Saba (34:48)**
 <!-- quran-verse-end -->
 
 ---
