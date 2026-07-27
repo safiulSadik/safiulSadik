@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Verily, my Sustainer hurls the truth [against all that is false] He who fully knows all the things that are beyond the reach of a created being’s perception!”* — **Saba (34:48)**
+> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
 <!-- quran-verse-end -->
 
 ---
