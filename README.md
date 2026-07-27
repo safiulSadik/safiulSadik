@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [so,] convey to the believers the glad tiding that a great bounty from God awaits them;* — **Al-Ahzaab (33:47)**
+> 📖 *Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;* — **Al-Mutaffifin (83:15)**
 <!-- quran-verse-end -->
 
 ---
