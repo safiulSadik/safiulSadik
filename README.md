@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For He [it is who, after creating the earth,] placed firm mountains on it, [towering] above its surface, and bestowed [so many] blessings on it, and equitably apportioned its means of subsistence to all who would seek it: [and all this He created] in four aeons.* — **Fussilat (41:10)**
+> 📖 *Yea, indeed, We have created you, and then formed you; and then We said unto the angels, "Prostrate yourselves before Adam!" - whereupon they [all] prostrated themselves, save Iblis: he was not among those who prostrated themselves.* — **Al-A'raaf (7:11)**
 <!-- quran-verse-end -->
 
 ---
