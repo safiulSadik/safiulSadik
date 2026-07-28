@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea, indeed, We have created you, and then formed you; and then We said unto the angels, "Prostrate yourselves before Adam!" - whereupon they [all] prostrated themselves, save Iblis: he was not among those who prostrated themselves.* — **Al-A'raaf (7:11)**
+> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
 <!-- quran-verse-end -->
 
 ---
