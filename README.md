@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
+> 📖 *- and then they turned upon one another with mutual reproaches.* — **Al-Qalam (68:30)**
 <!-- quran-verse-end -->
 
 ---
