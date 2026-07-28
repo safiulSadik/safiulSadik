@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *- and then they turned upon one another with mutual reproaches.* — **Al-Qalam (68:30)**
+> 📖 *Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!* — **Al-Alaq (96:19)**
 <!-- quran-verse-end -->
 
 ---
