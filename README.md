@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HAS the story of Abraham’s honoured guests ever come within thy ken?* — **Adh-Dhaariyat (51:24)**
+> 📖 *If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.* — **Al-Mumtahana (60:2)**
 <!-- quran-verse-end -->
 
 ---
