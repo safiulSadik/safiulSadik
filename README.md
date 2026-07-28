@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!* — **Al-Alaq (96:19)**
+> 📖 *AND HAS the story of Abraham’s honoured guests ever come within thy ken?* — **Adh-Dhaariyat (51:24)**
 <!-- quran-verse-end -->
 
 ---
