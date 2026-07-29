@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
+> 📖 *and the sky will be rent asunder - for, frail will it have become on that Day -;* — **Al-Haaqqa (69:16)**
 <!-- quran-verse-end -->
 
 ---
