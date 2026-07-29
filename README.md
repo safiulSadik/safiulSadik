@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All this [for the righteous]: but, verily, the most evil of all goals awaits those who are wont to transgress the bounds of what is right:* — **Saad (38:55)**
+> 📖 *Yet [even Solomon had to die; but] when We decreed that he should die, nothing showed them that he was dead except an earthworm that gnawed away his staff. And when he fell to the ground, those invisible beings [subservient to him] saw clearly that, had they but understood the reality which was be­yond the reach of their perception, they would not have continued [to toil] in the shameful suffering [of servitude]* — **Saba (34:14)**
 <!-- quran-verse-end -->
 
 ---
