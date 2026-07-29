@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the sky will be rent asunder - for, frail will it have become on that Day -;* — **Al-Haaqqa (69:16)**
+> 📖 *However, among the bedouin there are [also] such as believe in God and the Last Day, and regard all that they spend (in God's cause] as a means of drawing them nearer to God and of [their being remembered in] the. Apostle's prayers. Oh, verily, it shall [indeed] be a means of [God's] nearness to them, [for] God will admit them unto His grace: verily, God is much-forgiving, a dispenser of grace!* — **At-Tawba (9:99)**
 <!-- quran-verse-end -->
 
 ---
