@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they answer: “When will that final decision take place, if what you [believers] say is true?”* — **As-Sajda (32:28)**
+> 📖 *To happiness [in the life to come] will indeed attain he who attains to purity [in this world],* — **Al-A'laa (87:14)**
 <!-- quran-verse-end -->
 
 ---
