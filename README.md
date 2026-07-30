@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *like molten lead will it boil in the belly,* — **Ad-Dukhaan (44:45)**
+> 📖 *But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"* — **Al-Mulk (67:25)**
 <!-- quran-verse-end -->
 
 ---
