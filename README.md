@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.* — **As-Sajda (32:21)**
+> 📖 *[And] he was told, “[Thou shalt] enter paradise!” - [whereupon] he exclaimed: “Would that my people knew* — **Yaseen (36:26)**
 <!-- quran-verse-end -->
 
 ---
