@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] he was told, “[Thou shalt] enter paradise!” - [whereupon] he exclaimed: “Would that my people knew* — **Yaseen (36:26)**
+> 📖 *like molten lead will it boil in the belly,* — **Ad-Dukhaan (44:45)**
 <!-- quran-verse-end -->
 
 ---
