@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *This Our record speaks of you in all truth: for, verily, We have caused to be recorded all that you ever did!”* — **Al-Jaathiya (45:29)**
 <!-- quran-verse-end -->
 
 ---
