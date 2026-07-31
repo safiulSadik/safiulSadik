@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This Our record speaks of you in all truth: for, verily, We have caused to be recorded all that you ever did!”* — **Al-Jaathiya (45:29)**
+> 📖 *Enter this [paradise] in peace; this is the Day on which life abiding begins!”* — **Qaaf (50:34)**
 <!-- quran-verse-end -->
 
 ---
