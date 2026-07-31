@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ABOUT WHAT do they [most often] ask one another?* — **An-Naba (78:1)**
+> 📖 *and give no thought to the life to come [and to Judgment Day]!* — **Al-Qiyaama (75:21)**
 <!-- quran-verse-end -->
 
 ---
