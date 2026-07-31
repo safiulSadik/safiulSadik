@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [withal, He will grant you] yet another thing that you dearly love: succour from God [in this world], and a victory soon to come: and [thereof, O Prophet,] give thou a glad tiding to all who believe.* — **As-Saff (61:13)**
+> 📖 *ABOUT WHAT do they [most often] ask one another?* — **An-Naba (78:1)**
 <!-- quran-verse-end -->
 
 ---
