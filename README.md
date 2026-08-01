@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the daybreak* — **Al-Fajr (89:1)**
+> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
 <!-- quran-verse-end -->
 
 ---
