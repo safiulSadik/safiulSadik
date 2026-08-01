@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thou wilt see them exposed to that [doom], humbling themselves in abasement, looking [around] with a furtive glance - the while those who had attained to faith will say, “Verily, lost on [this] Day of Resurrection are they who have squandered their own and their followers’ selves!” Oh, verily, the evildoers will fall into long-lasting suffering,* — **Ash-Shura (42:45)**
+> 📖 *O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.* — **Al-Hadid (57:28)**
 <!-- quran-verse-end -->
 
 ---
