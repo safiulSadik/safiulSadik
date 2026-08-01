@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
+> 📖 *[But only too often] man destroys himself: how stubbornly does he deny the truth!* — **Abasa (80:17)**
 <!-- quran-verse-end -->
 
 ---
