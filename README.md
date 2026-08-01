@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But only too often] man destroys himself: how stubbornly does he deny the truth!* — **Abasa (80:17)**
+> 📖 *CONSIDER the daybreak* — **Al-Fajr (89:1)**
 <!-- quran-verse-end -->
 
 ---
