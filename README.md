@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Pharaoh issued a call to his people, say­ing: “O my people! Does not the dominion over Egypt belong to me, since all these running waters flow at my feet? Can you not, then, see [that I am your lord supreme]?* — **Az-Zukhruf (43:51)**
+> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
 <!-- quran-verse-end -->
 
 ---
