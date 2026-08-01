@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.* — **Al-Hadid (57:28)**
+> 📖 *For, distant from it shall remain he who is truly conscious of God:* — **Al-Lail (92:17)**
 <!-- quran-verse-end -->
 
 ---
