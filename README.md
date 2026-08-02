@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for him whose record shall be placed in his right hand, he will exclaim: "Come you all!" Read this my record!* — **Al-Haaqqa (69:19)**
+> 📖 *[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.* — **Al-Hashr (59:12)**
 <!-- quran-verse-end -->
 
 ---
