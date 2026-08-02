@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, God will preserve them from the woes of that Day, and will bestow on them brightness and joy,* — **Al-Insaan (76:11)**
+> 📖 *Behold how We bestow [on earth) more bounty on some of them than on others: but [remember that] the life to come will be far higher in degree and far greater in merit and bounty.* — **Al-Israa (17:21)**
 <!-- quran-verse-end -->
 
 ---
