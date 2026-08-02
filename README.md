@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has created you: and among you are such as deny this truth, and among you are such as believe [in it]. And God sees all that you do.* — **At-Taghaabun (64:2)**
+> 📖 *And so, God will preserve them from the woes of that Day, and will bestow on them brightness and joy,* — **Al-Insaan (76:11)**
 <!-- quran-verse-end -->
 
 ---
