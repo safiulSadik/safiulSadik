@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!* — **Al-Mumtahana (60:11)**
+> 📖 *Now as for him whose record shall be placed in his right hand, he will exclaim: "Come you all!" Read this my record!* — **Al-Haaqqa (69:19)**
 <!-- quran-verse-end -->
 
 ---
