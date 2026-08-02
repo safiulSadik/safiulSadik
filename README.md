@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold how We bestow [on earth) more bounty on some of them than on others: but [remember that] the life to come will be far higher in degree and far greater in merit and bounty.* — **Al-Israa (17:21)**
+> 📖 *he that spends his possessions [on others] so that he might grow in purity –* — **Al-Lail (92:18)**
 <!-- quran-verse-end -->
 
 ---
