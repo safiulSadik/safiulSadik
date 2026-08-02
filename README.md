@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “I counsel you one thing only: Be [ever­ conscious of] standing before God, whether you are in the company of others or alone; and then bethink yourselves [that] there is no madness in [this pro­phet,] your fellow-man: he is only a warner to you of suffering severe to come.”* — **Saba (34:46)**
+> 📖 *And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!* — **Al-Mumtahana (60:11)**
 <!-- quran-verse-end -->
 
 ---
