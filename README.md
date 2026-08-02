@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he that spends his possessions [on others] so that he might grow in purity –* — **Al-Lail (92:18)**
+> 📖 *Say: “I counsel you one thing only: Be [ever­ conscious of] standing before God, whether you are in the company of others or alone; and then bethink yourselves [that] there is no madness in [this pro­phet,] your fellow-man: he is only a warner to you of suffering severe to come.”* — **Saba (34:46)**
 <!-- quran-verse-end -->
 
 ---
