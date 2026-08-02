@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Yet] the hosts [of those who deny the truth] shall be routed, and they shall turn their backs [in flight]!* — **Al-Qamar (54:45)**
+> 📖 *In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,* — **Al-Insaan (76:13)**
 <!-- quran-verse-end -->
 
 ---
