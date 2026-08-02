@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.* — **Al-Hashr (59:12)**
+> 📖 *[Yet] the hosts [of those who deny the truth] shall be routed, and they shall turn their backs [in flight]!* — **Al-Qamar (54:45)**
 <!-- quran-verse-end -->
 
 ---
