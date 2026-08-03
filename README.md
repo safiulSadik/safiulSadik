@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *excepting only such as attain to faith and do good works: and theirs shall be a reward unending!* — **At-Tin (95:6)**
+> 📖 *And yet, verily, there are ever-watchful forces over you,* — **Al-Infitaar (82:10)**
 <!-- quran-verse-end -->
 
 ---
