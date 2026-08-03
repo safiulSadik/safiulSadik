@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And one part of him will say: “This it is that has been ever-present with me!”* — **Qaaf (50:23)**
+> 📖 *In it shall they remain for a long time.* — **An-Naba (78:23)**
 <!-- quran-verse-end -->
 
 ---
