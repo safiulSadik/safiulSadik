@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.* — **Al-Munaafiqoon (63:8)**
+> 📖 *And one part of him will say: “This it is that has been ever-present with me!”* — **Qaaf (50:23)**
 <!-- quran-verse-end -->
 
 ---
