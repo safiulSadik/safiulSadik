@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Our Sustainer will bring us all together [on Judgment Day], and then He will lay open the truth between us, in justice - for He alone is the One who opens all truth, the All-Knowing!”* — **Saba (34:26)**
+> 📖 *Nay, but they who are bent on denying the truth give the lie [to this divine writ]!* — **Al-Inshiqaaq (84:22)**
 <!-- quran-verse-end -->
 
 ---
