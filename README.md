@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and indeed, We chose them knowingly above all other people,* — **Ad-Dukhaan (44:32)**
+> 📖 *excepting only such as attain to faith and do good works: and theirs shall be a reward unending!* — **At-Tin (95:6)**
 <!-- quran-verse-end -->
 
 ---
