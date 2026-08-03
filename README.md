@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they who are bent on denying the truth give the lie [to this divine writ]!* — **Al-Inshiqaaq (84:22)**
+> 📖 *and indeed, We chose them knowingly above all other people,* — **Ad-Dukhaan (44:32)**
 <!-- quran-verse-end -->
 
 ---
