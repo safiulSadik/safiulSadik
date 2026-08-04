@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
+> 📖 *Or [do you think], perchance, that out of all His creation He has chosen for Himself daughters, and favoured you with sons?* — **Az-Zukhruf (43:16)**
 <!-- quran-verse-end -->
 
 ---
