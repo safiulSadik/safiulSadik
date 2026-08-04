@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered He: “Verily, so [be it:] thou shalt be among those who are granted respite* — **Saad (38:80)**
+> 📖 *So he went forth from thence, looking fearfully about him, and prayed: “O my Sustainer! Save me from all evildoing folk!”* — **Al-Qasas (28:21)**
 <!-- quran-verse-end -->
 
 ---
