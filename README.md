@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or [do you think], perchance, that out of all His creation He has chosen for Himself daughters, and favoured you with sons?* — **Az-Zukhruf (43:16)**
+> 📖 *Say: “Who is it that provides for you sus­tenance out of the heavens and the earth?” Say: “It is God. And, behold, either we [who believe in Him] or you [who deny His oneness] are on the right path, or have clearly gone astray!”* — **Saba (34:24)**
 <!-- quran-verse-end -->
 
 ---
