@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus it is: if thou ask them, “Who is it that sends down water from the skies, giving life thereby to the earth after it had been lifeless?” - they will surely answer, “God.” Say thou: “[Since this is so,] all praise is due to God [alone]!” But most of them will not use their reason:* — **Al-Ankaboot (29:63)**
+> 📖 *seeing that He has created [every one of] you in successive stages?* — **Nooh (71:14)**
 <!-- quran-verse-end -->
 
 ---
