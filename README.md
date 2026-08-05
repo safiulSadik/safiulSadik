@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These messages of God do We convey unto thee, setting forth the truth. In what other tiding, if not in God’s messages, will they, then, believe?* — **Al-Jaathiya (45:6)**
+> 📖 *witnessed~ by all who have [ever] been drawn close unto God.* — **Al-Mutaffifin (83:21)**
 <!-- quran-verse-end -->
 
 ---
