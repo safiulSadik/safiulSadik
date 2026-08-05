@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW, whenever thou meet such as indulge in [blasphemous] talk about Our messages, turn thy back upon them until they begin to talk of other things and if Satan should ever cause thee to forget [thyself], remain not, after recollection, in the company of such evildoing folk,* — **Al-An'aam (6:68)**
+> 📖 *These messages of God do We convey unto thee, setting forth the truth. In what other tiding, if not in God’s messages, will they, then, believe?* — **Al-Jaathiya (45:6)**
 <!-- quran-verse-end -->
 
 ---
