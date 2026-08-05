@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Who is it that provides for you sus­tenance out of the heavens and the earth?” Say: “It is God. And, behold, either we [who believe in Him] or you [who deny His oneness] are on the right path, or have clearly gone astray!”* — **Saba (34:24)**
+> 📖 *In both of them will be [all kinds of] fruit, and date-palms and pomegranates.* — **Ar-Rahmaan (55:68)**
 <!-- quran-verse-end -->
 
 ---
