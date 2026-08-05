@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *NOW, whenever thou meet such as indulge in [blasphemous] talk about Our messages, turn thy back upon them until they begin to talk of other things and if Satan should ever cause thee to forget [thyself], remain not, after recollection, in the company of such evildoing folk,* — **Al-An'aam (6:68)**
 <!-- quran-verse-end -->
 
 ---
