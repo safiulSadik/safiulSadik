@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In both of them will be [all kinds of] fruit, and date-palms and pomegranates.* — **Ar-Rahmaan (55:68)**
+> 📖 *And thus it is: if thou ask them, “Who is it that sends down water from the skies, giving life thereby to the earth after it had been lifeless?” - they will surely answer, “God.” Say thou: “[Since this is so,] all praise is due to God [alone]!” But most of them will not use their reason:* — **Al-Ankaboot (29:63)**
 <!-- quran-verse-end -->
 
 ---
