@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for when they are told, "Come unto that which God has bestowed from on high, and unto the Apostle" - they answer, "Enough for us is that which we found our forefathers believing in and doing." Why, even though their forefathers knew nothing, and were devoid of all guidance?* — **Al-Maaida (5:104)**
+> 📖 *Because of this, then, summon [all mankind], and pursue the right course, as thou hast been bidden [by God]; and do not follow their likes and dislikes, but say: “I believe in whatever revelation God has be­stowed from on high; and I am bidden to bring about equity in your mutual views. God is our Sustainer as well as your Sustainer. To us shall be accounted our deeds, and to you, your deeds. Let there be no contention between us and you: God will bring us all together - for with Him is all journeys’ end.”* — **Ash-Shura (42:15)**
 <!-- quran-verse-end -->
 
 ---
