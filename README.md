@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God deprives usurious gains of all blessing, whereas He blesses charitable deeds with manifold increase. And God does not love anyone who is stubbornly ingrate and persists in sinful ways.* — **Al-Baqara (2:276)**
+> 📖 *for when they are told, "Come unto that which God has bestowed from on high, and unto the Apostle" - they answer, "Enough for us is that which we found our forefathers believing in and doing." Why, even though their forefathers knew nothing, and were devoid of all guidance?* — **Al-Maaida (5:104)**
 <!-- quran-verse-end -->
 
 ---
