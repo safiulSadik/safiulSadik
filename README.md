@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *weigh, therefore, [your deeds] with equity, and cut not the measure short!* — **Ar-Rahmaan (55:9)**
 <!-- quran-verse-end -->
 
 ---
