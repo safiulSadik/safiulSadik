@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *all whose hearts tremble with awe whenever God is mentioned, and all who patiently bear whatever ill befalls them, and all who are constant in prayer and spend on others out of what We provide for them as sustenance.* — **Al-Hajj (22:35)**
 <!-- quran-verse-end -->
 
 ---
