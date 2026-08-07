@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
+> 📖 *thinking that no harm would befall them; and so they became blind and deaf [of heart]. Thereafter God accepted their repentance: and again many of them became blind and deaf. But God sees all that they do.* — **Al-Maaida (5:71)**
 <!-- quran-verse-end -->
 
 ---
