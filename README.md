@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No empty talk will they hear in that [paradise], nor any lie.* — **An-Naba (78:35)**
+> 📖 *for, [if they did, they would know that] the life of this world is nothing but a passing delight and a play - whereas, behold, the life in the hereafter is indeed the only [true] life: if they but knew this!* — **Al-Ankaboot (29:64)**
 <!-- quran-verse-end -->
 
 ---
