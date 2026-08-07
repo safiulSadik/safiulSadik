@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *all whose hearts tremble with awe whenever God is mentioned, and all who patiently bear whatever ill befalls them, and all who are constant in prayer and spend on others out of what We provide for them as sustenance.* — **Al-Hajj (22:35)**
+> 📖 *No empty talk will they hear in that [paradise], nor any lie.* — **An-Naba (78:35)**
 <!-- quran-verse-end -->
 
 ---
