@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A fire kindled by God,* — **Al-Humaza (104:6)**
+> 📖 *When you will have returned to them, (O believers,] they will swear to you by God, [repeating their excuses,] with a view to your letting them be. Let them be, then: behold, they are loathsome, and hell is their goal in recompense for what they were wont to do.* — **At-Tawba (9:95)**
 <!-- quran-verse-end -->
 
 ---
