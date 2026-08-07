@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
+> 📖 *Say: "There is no comparison between the bad things and the good things, even though very many of the bad things may please thee greatly. Be, then, conscious of God, O you who are endowed with insight, so that you might attain to a happy state!"* — **Al-Maaida (5:100)**
 <!-- quran-verse-end -->
 
 ---
