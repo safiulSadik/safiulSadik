@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *weigh, therefore, [your deeds] with equity, and cut not the measure short!* — **Ar-Rahmaan (55:9)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
