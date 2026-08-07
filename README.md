@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, when We recite it, follow thou its wording [with all thy mind]:* — **Al-Qiyaama (75:18)**
+> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
 <!-- quran-verse-end -->
 
 ---
