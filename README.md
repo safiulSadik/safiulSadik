@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When you will have returned to them, (O believers,] they will swear to you by God, [repeating their excuses,] with a view to your letting them be. Let them be, then: behold, they are loathsome, and hell is their goal in recompense for what they were wont to do.* — **At-Tawba (9:95)**
+> 📖 *[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.* — **Al-Hashr (59:12)**
 <!-- quran-verse-end -->
 
 ---
