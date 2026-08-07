@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Taste it - thou who [on earth] hast considered thyself so mighty, so noble!* — **Ad-Dukhaan (44:49)**
+> 📖 *Thus, when We recite it, follow thou its wording [with all thy mind]:* — **Al-Qiyaama (75:18)**
 <!-- quran-verse-end -->
 
 ---
