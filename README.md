@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if you do not bring him unto me, you shall never again receive a single measure [of grain] from me, nor shall you [be allowed to] come near me!"* — **Yusuf (12:60)**
+> 📖 *And they bar others therefrom. and go far away from it: but they destroy none but themselves, and perceive it not.* — **Al-An'aam (6:26)**
 <!-- quran-verse-end -->
 
 ---
