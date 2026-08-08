@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We shall let them be followed by those of later times:* — **Al-Mursalaat (77:17)**
+> 📖 *that blazing fire will truly be the goal!* — **An-Naazi'aat (79:39)**
 <!-- quran-verse-end -->
 
 ---
