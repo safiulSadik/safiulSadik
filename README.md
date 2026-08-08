@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.* — **Al-Muzzammil (73:16)**
+> 📖 *It does not allow to live, and neither leaves [to die],* — **Al-Muddaththir (74:28)**
 <!-- quran-verse-end -->
 
 ---
