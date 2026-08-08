@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
+> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
 <!-- quran-verse-end -->
 
 ---
