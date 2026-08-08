@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We turned those [sinful towns} upside down, and rained down upon them stone-hard blows of chastisement pre-ordained.* — **Al-Hijr (15:74)**
+> 📖 *And We shall let them be followed by those of later times:* — **Al-Mursalaat (77:17)**
 <!-- quran-verse-end -->
 
 ---
