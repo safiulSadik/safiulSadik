@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they bar others therefrom. and go far away from it: but they destroy none but themselves, and perceive it not.* — **Al-An'aam (6:26)**
+> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
 <!-- quran-verse-end -->
 
 ---
