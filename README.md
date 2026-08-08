@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,* — **Nooh (71:21)**
+> 📖 *and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.* — **Al-Muzzammil (73:16)**
 <!-- quran-verse-end -->
 
 ---
