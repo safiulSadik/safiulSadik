@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”* — **Al-Hujuraat (49:16)**
+> 📖 *But if you do not bring him unto me, you shall never again receive a single measure [of grain] from me, nor shall you [be allowed to] come near me!"* — **Yusuf (12:60)**
 <!-- quran-verse-end -->
 
 ---
