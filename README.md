@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *And the King said: "Bring him unto me, so that I may attach him to my own person." And when he had spoken with him, [the King] said: "Behold, [from] this day thou shalt be of high standing with us, invested with all trust!"* — **Yusuf (12:54)**
 <!-- quran-verse-end -->
 
 ---
