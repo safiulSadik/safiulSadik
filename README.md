@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *and We turned those [sinful towns} upside down, and rained down upon them stone-hard blows of chastisement pre-ordained.* — **Al-Hijr (15:74)**
 <!-- quran-verse-end -->
 
 ---
