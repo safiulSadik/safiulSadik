@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The truly virtuous are] they [who] fulfil their vows, and stand in awe of a Day the woe of which is bound to spread far and wide,* — **Al-Insaan (76:7)**
+> 📖 *Do you, perchance, regard the [mere] giving of water to pilgrims and the tending of the Inviolable House of Worship as being equal to [the works of] one who believes in God and the Last Day and strives hard in God's cause? These [things] are not equal in the sight of God. And God does not grace with His guidance people who [deliberately] do wrong.* — **At-Tawba (9:19)**
 <!-- quran-verse-end -->
 
 ---
