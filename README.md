@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Whereupon] they will exclaim: “O our Sus­tainer! Twice hast Thou caused us to die, just as twice Thou hast brought us to life!* — **Ghafir (40:11)**
+> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
 <!-- quran-verse-end -->
 
 ---
