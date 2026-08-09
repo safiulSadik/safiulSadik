@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
+> 📖 *[As against this,] behold, God will admit those who attain to faith and do righteous deeds into gar­dens through which running waters flow, wherein they will be adorned with bracelets of gold and pearls, and where silk will be their raiment:* — **Al-Hajj (22:23)**
 <!-- quran-verse-end -->
 
 ---
