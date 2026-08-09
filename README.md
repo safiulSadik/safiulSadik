@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [the King]: "This is a mercy from my Sustainer! Yet when the time appointed by my Sustainer shall come, He will make this [rampart] level with the ground: and my Sustainer's promise always comes true!"* — **Al-Kahf (18:98)**
+> 📖 *[The truly virtuous are] they [who] fulfil their vows, and stand in awe of a Day the woe of which is bound to spread far and wide,* — **Al-Insaan (76:7)**
 <!-- quran-verse-end -->
 
 ---
