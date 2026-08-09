@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *Said he: “Do [you really think that] they hear you when you invoke them,* — **Ash-Shu'araa (26:72)**
 <!-- quran-verse-end -->
 
 ---
