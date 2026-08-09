@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *upon their faces thou wilt see the brightness of bliss.* — **Al-Mutaffifin (83:24)**
 <!-- quran-verse-end -->
 
 ---
