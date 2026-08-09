@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As against this,] behold, God will admit those who attain to faith and do righteous deeds into gar­dens through which running waters flow, wherein they will be adorned with bracelets of gold and pearls, and where silk will be their raiment:* — **Al-Hajj (22:23)**
+> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
 <!-- quran-verse-end -->
 
 ---
