@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *[Whereupon] they will exclaim: “O our Sus­tainer! Twice hast Thou caused us to die, just as twice Thou hast brought us to life!* — **Ghafir (40:11)**
 <!-- quran-verse-end -->
 
 ---
