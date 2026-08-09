@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [God renders Satan’s aspersions null and void] so that they who are endowed with [innate] knowledge might know that this [divine writ] is the truth from thy Sustainer, and that they aught believe in it, and that their hearts might humbly submit unto Him. For, behold, God does guide onto a straight way those who have attained to faith –* — **Al-Hajj (22:54)**
+> 📖 *And [know] that all worship is due to God [alone]: hence, do not invoke anyone side by side with God!* — **Al-Jinn (72:18)**
 <!-- quran-verse-end -->
 
 ---
