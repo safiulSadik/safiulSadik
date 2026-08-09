@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
+> 📖 *Say: “O my Sustainer! Judge Thou in truth!” - and [say]: “Our Sustainer is the Most Gracious, the One whose aid is ever to be sought against all your [attempts at] defining [Him]!”* — **Al-Anbiyaa (21:112)**
 <!-- quran-verse-end -->
 
 ---
