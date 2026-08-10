@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.* — **Muhammad (47:2)**
+> 📖 *O YOU who have attained to faith! Be ever steadfast in your devotion to God, bearing witness to the truth in all equity; and never let hatred of any-one lead you into the sin of deviating from justice. Be just: this is closest to being God-conscious. And remain conscious of God: verily, God is aware of all that you do.* — **Al-Maaida (5:8)**
 <!-- quran-verse-end -->
 
 ---
