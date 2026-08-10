@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In [each of] these two [gardens] will two springs gush forth.* — **Ar-Rahmaan (55:66)**
+> 📖 *for, behold, unto thy Sustainer all must return.* — **Al-Alaq (96:8)**
 <!-- quran-verse-end -->
 
 ---
