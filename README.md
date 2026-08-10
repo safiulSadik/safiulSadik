@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
+> 📖 *And on the Day when those who were bent on denying the truth will be brought within sight of the fire, [they will be told:] “You have exhausted your [share of] good things in your worldly life, having enjoyed them [without any thought of the hereafter]: and so today you shall be requited with the suffering of humiliation for having gloried on earth in your arrogance, offending against all that is right, and for all your iniquitous doings!”* — **Al-Ahqaf (46:20)**
 <!-- quran-verse-end -->
 
 ---
