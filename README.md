@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.* — **Faatir (35:31)**
+> 📖 *Satan has gained mastery over them, and has caused them to remain oblivious of the remem­brance of God. Such as these are Satan’s partisans: oh, verily, it is they, the partisans of Satan, who will truly be the losers!* — **Al-Mujaadila (58:19)**
 <!-- quran-verse-end -->
 
 ---
