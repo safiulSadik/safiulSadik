@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, unto thy Sustainer all must return.* — **Al-Alaq (96:8)**
+> 📖 *But as for those who strive hard in Our cause -We shall most certainly guide them onto paths that lead unto Us: for, behold, God is indeed with the doers of good.* — **Al-Ankaboot (29:69)**
 <!-- quran-verse-end -->
 
 ---
