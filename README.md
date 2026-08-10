@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who strive hard in Our cause -We shall most certainly guide them onto paths that lead unto Us: for, behold, God is indeed with the doers of good.* — **Al-Ankaboot (29:69)**
+> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
 <!-- quran-verse-end -->
 
 ---
