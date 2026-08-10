@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
+> 📖 *VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:* — **Muhammad (47:25)**
 <!-- quran-verse-end -->
 
 ---
