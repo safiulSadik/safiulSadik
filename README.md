@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Be ever steadfast in your devotion to God, bearing witness to the truth in all equity; and never let hatred of any-one lead you into the sin of deviating from justice. Be just: this is closest to being God-conscious. And remain conscious of God: verily, God is aware of all that you do.* — **Al-Maaida (5:8)**
+> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
 <!-- quran-verse-end -->
 
 ---
