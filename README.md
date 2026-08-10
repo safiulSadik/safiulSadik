@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on the Day when those who were bent on denying the truth will be brought within sight of the fire, [they will be told:] “You have exhausted your [share of] good things in your worldly life, having enjoyed them [without any thought of the hereafter]: and so today you shall be requited with the suffering of humiliation for having gloried on earth in your arrogance, offending against all that is right, and for all your iniquitous doings!”* — **Al-Ahqaf (46:20)**
+> 📖 *And how could you refuse to fight in the cause of God and of the utterly helpless men and women and children who are crying, "O our Sustainer! Lead us forth [to freedom] out of this land whose people are oppressors, and raise for us, out of Thy grace, a protector, and raise for us, out of Thy grace, one who will bring us succour!"* — **An-Nisaa (4:75)**
 <!-- quran-verse-end -->
 
 ---
