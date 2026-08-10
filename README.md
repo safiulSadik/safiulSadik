@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how could you refuse to fight in the cause of God and of the utterly helpless men and women and children who are crying, "O our Sustainer! Lead us forth [to freedom] out of this land whose people are oppressors, and raise for us, out of Thy grace, a protector, and raise for us, out of Thy grace, one who will bring us succour!"* — **An-Nisaa (4:75)**
+> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
 <!-- quran-verse-end -->
 
 ---
