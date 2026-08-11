@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!* — **Adh-Dhaariyat (51:58)**
+> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
 <!-- quran-verse-end -->
 
 ---
