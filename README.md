@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?* — **Al-Fajr (89:23)**
 <!-- quran-verse-end -->
 
 ---
