@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, remain thou patient in adversity - for, verily, God’s promise always comes true - and ask forgiveness for thy sins, and extol thy Sustainer’s glory and praise by night and by day.* — **Ghafir (40:55)**
+> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
 <!-- quran-verse-end -->
 
 ---
