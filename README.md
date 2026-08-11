@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the revelations of Abraham and Moses.* — **Al-A'laa (87:19)**
+> 📖 *whereas for those who strive against Our messages, seeking to defeat their purpose, there is grievous suffering in store as an outcome of [their] vileness.* — **Saba (34:5)**
 <!-- quran-verse-end -->
 
 ---
