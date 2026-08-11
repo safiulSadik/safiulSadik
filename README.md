@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas for those who strive against Our messages, seeking to defeat their purpose, there is grievous suffering in store as an outcome of [their] vileness.* — **Saba (34:5)**
+> 📖 *for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!* — **Adh-Dhaariyat (51:58)**
 <!-- quran-verse-end -->
 
 ---
