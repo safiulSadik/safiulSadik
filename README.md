@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! Say unto thy wives: “If you desire [but] the life of this world and its charms - well, then, I shall provide for you and release you in a becoming manner;* — **Al-Ahzaab (33:28)**
+> 📖 *hence, remain thou patient in adversity - for, verily, God’s promise always comes true - and ask forgiveness for thy sins, and extol thy Sustainer’s glory and praise by night and by day.* — **Ghafir (40:55)**
 <!-- quran-verse-end -->
 
 ---
