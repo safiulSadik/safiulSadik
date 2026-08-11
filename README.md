@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *the revelations of Abraham and Moses.* — **Al-A'laa (87:19)**
 <!-- quran-verse-end -->
 
 ---
