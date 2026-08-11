@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:* — **Ash-Shams (91:14)**
+> 📖 *to him didst thou give thy whole attention,* — **Abasa (80:6)**
 <!-- quran-verse-end -->
 
 ---
