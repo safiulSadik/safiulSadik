@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *PEOPLE will ask thee about the Last Hour. Say: “Knowledge thereof rests with God alone; yet for all thou knowest, the Last Hour may well be near!”* — **Al-Ahzaab (33:63)**
+> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
 <!-- quran-verse-end -->
 
 ---
