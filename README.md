@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *[everyone] who stood in awe of the Most Gracious although He is beyond the reach of human perception, and who has come [unto Him] with a heart full of contrition.* — **Qaaf (50:33)**
 <!-- quran-verse-end -->
 
 ---
