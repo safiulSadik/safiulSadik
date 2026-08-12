@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[everyone] who stood in awe of the Most Gracious although He is beyond the reach of human perception, and who has come [unto Him] with a heart full of contrition.* — **Qaaf (50:33)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:40)**
 <!-- quran-verse-end -->
 
 ---
