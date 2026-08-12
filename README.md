@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
+> 📖 *[the people of] Iram the many-pillared,* — **Al-Fajr (89:7)**
 <!-- quran-verse-end -->
 
 ---
