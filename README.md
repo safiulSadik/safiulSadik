@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [revelation, then,] is a means of insight for mankind, and a guidance and grace unto people who are endowed with inner certainty.* — **Al-Jaathiya (45:20)**
+> 📖 *Is not He, then; able to bring the dead back to life?* — **Al-Qiyaama (75:40)**
 <!-- quran-verse-end -->
 
 ---
