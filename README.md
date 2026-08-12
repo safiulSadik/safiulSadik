@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In time We shall make them fully understand Our messages [through what they perceive] in the utmost horizons [of the universe] and within them­selves, so that it will become clear unto them that this [revelation] is indeed the truth. [Still,] is it not enough [for them to know] that thy Sustainer is witness unto everything?* — **Fussilat (41:53)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
