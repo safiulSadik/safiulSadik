@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Be conscious of God with all the consciousness that is due to Him, and do not allow death to overtake you ere you have surrendered yourselves unto Him.* — **Aal-i-Imraan (3:102)**
+> 📖 *thereby storming [blindly] into any host!* — **Al-Aadiyaat (100:5)**
 <!-- quran-verse-end -->
 
 ---
