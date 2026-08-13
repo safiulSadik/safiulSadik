@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent forth His Apostle with [the task of] spreading guidance and the religion of truth, to the end that He make it prevail over all [false] religion, however hateful this may be to those who ascribe divinity to aught but God.* — **As-Saff (61:9)**
+> 📖 *O you who have attained to faith! Be conscious of God with all the consciousness that is due to Him, and do not allow death to overtake you ere you have surrendered yourselves unto Him.* — **Aal-i-Imraan (3:102)**
 <!-- quran-verse-end -->
 
 ---
