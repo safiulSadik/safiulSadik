@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *though they may be in one another's sight: [for,] everyone who was lost in sin will on that Day but desire to ransom himself from suffering at the price of his own children,* — **Al-Ma'aarij (70:11)**
+> 📖 *But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.* — **Al-Muzzammil (73:8)**
 <!-- quran-verse-end -->
 
 ---
