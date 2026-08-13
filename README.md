@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.* — **Al-Muzzammil (73:8)**
+> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
 <!-- quran-verse-end -->
 
 ---
