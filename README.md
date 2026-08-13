@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, it is indeed for Us to grace [you] with guidance;* — **Al-Lail (92:12)**
+> 📖 *[and he shall be told:] “This is an outcome of what thine own hands have wrought - for, never does God do the least wrong to His creatures!”* — **Al-Hajj (22:10)**
 <!-- quran-verse-end -->
 
 ---
