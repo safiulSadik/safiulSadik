@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND GOD has created you, and in time will cause you to die; and many a one of you is reduced in old age to a most abject state, ceasing to know anything of what he once knew so well. Verily, God is all-knowing, infinite in His power!* — **An-Nahl (16:70)**
+> 📖 *"'And [now we know] that the foolish among us were wont to say outrageous things about God,* — **Al-Jinn (72:4)**
 <!-- quran-verse-end -->
 
 ---
