@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *though they may be in one another's sight: [for,] everyone who was lost in sin will on that Day but desire to ransom himself from suffering at the price of his own children,* — **Al-Ma'aarij (70:11)**
 <!-- quran-verse-end -->
 
 ---
