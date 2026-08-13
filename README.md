@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and he shall be told:] “This is an outcome of what thine own hands have wrought - for, never does God do the least wrong to His creatures!”* — **Al-Hajj (22:10)**
+> 📖 *and [all that] life of ease in which they used to delight!* — **Ad-Dukhaan (44:27)**
 <!-- quran-verse-end -->
 
 ---
