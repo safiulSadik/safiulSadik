@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [all that] life of ease in which they used to delight!* — **Ad-Dukhaan (44:27)**
+> 📖 *and then storming on with a tempest's force!* — **Al-Mursalaat (77:2)**
 <!-- quran-verse-end -->
 
 ---
