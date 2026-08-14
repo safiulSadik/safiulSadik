@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And do not touch the substance of an orphan, save to improve it, before he comes of age. And be true to every promise - for, verily, [on Judgment Day] you will be called to account for every promise which you have made!* — **Al-Israa (17:34)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
