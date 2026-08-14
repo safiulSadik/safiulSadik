@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But even if we had sent down unto thee [O Prophet] a writing on paper, and they had touched it with their own hands - those who are bent on denying the truth would indeed have said, "This is clearly nothing but a deception!"* — **Al-An'aam (6:7)**
+> 📖 *For it is He who has brought into being gardens-[both] the cultivated ones and those growing wild -and the date-palm, and fields bearing multiform produce, and the olive tree, and the pomegranate: [all] resembling one another and yet so different! Eat of their fruit when it comes to fruition, and give [unto the poor] their due on harvest day. And do not waste [God's bounties]: verily, He does not love the wasteful!* — **Al-An'aam (6:141)**
 <!-- quran-verse-end -->
 
 ---
