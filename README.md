@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay! We shall record what he says, and We shall lengthen the length of his suffering [in the hereafter],* — **Maryam (19:79)**
+> 📖 *It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!* — **Muhammad (47:23)**
 <!-- quran-verse-end -->
 
 ---
