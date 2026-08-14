@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Was it, then, a delusion or is it that you failed to see [its truth]?* — **At-Tur (52:15)**
+> 📖 *Alif. Lam. Mim.* — **Al-Ankaboot (29:1)**
 <!-- quran-verse-end -->
 
 ---
