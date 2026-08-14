@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *But even if we had sent down unto thee [O Prophet] a writing on paper, and they had touched it with their own hands - those who are bent on denying the truth would indeed have said, "This is clearly nothing but a deception!"* — **Al-An'aam (6:7)**
 <!-- quran-verse-end -->
 
 ---
