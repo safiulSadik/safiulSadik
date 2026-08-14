@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When those youths took refuge in the cave, they prayed: "O our Sustainer! Bestow on us grace from Thyself, and endow us, whatever our [outward] condition, with consciousness of what is right!"* — **Al-Kahf (18:10)**
+> 📖 *The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:* — **As-Sajda (32:2)**
 <!-- quran-verse-end -->
 
 ---
