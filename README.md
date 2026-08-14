@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [now we know] that the foolish among us were wont to say outrageous things about God,* — **Al-Jinn (72:4)**
+> 📖 *And do not touch the substance of an orphan, save to improve it, before he comes of age. And be true to every promise - for, verily, [on Judgment Day] you will be called to account for every promise which you have made!* — **Al-Israa (17:34)**
 <!-- quran-verse-end -->
 
 ---
