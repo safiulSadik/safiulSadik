@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon they turned their backs on him and said, “Taught [by others] is he, a madman”?* — **Ad-Dukhaan (44:14)**
+> 📖 *On the Day when they meet Him, they will be welcomed with the greeting, “Peace”; and He will have readied for them a most excellent reward.* — **Al-Ahzaab (33:44)**
 <!-- quran-verse-end -->
 
 ---
