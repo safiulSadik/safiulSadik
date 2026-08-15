@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!* — **As-Sajda (32:10)**
+> 📖 *[As against this,] behold, God will admit those who attain to faith and do righteous deeds into gar­dens through which running waters flow, wherein they will be adorned with bracelets of gold and pearls, and where silk will be their raiment:* — **Al-Hajj (22:23)**
 <!-- quran-verse-end -->
 
 ---
