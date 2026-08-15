@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon an earthquake overtook them: and then they lay lifeless, in their very homes, on the ground.* — **Al-A'raaf (7:78)**
+> 📖 *whereupon they turned their backs on him and said, “Taught [by others] is he, a madman”?* — **Ad-Dukhaan (44:14)**
 <!-- quran-verse-end -->
 
 ---
