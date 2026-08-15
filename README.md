@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *None the less man chooses to deny what lies ahead of him,* — **Al-Qiyaama (75:5)**
+> 📖 *But if they [who reject all thought of the Last Hour] were to see a sign [of its approach], they would turn aside and say, “An ever-recurring delusion!” –* — **Al-Qamar (54:2)**
 <!-- quran-verse-end -->
 
 ---
