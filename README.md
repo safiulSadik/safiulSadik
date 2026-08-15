@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the Day when they meet Him, they will be welcomed with the greeting, “Peace”; and He will have readied for them a most excellent reward.* — **Al-Ahzaab (33:44)**
+> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
 <!-- quran-verse-end -->
 
 ---
