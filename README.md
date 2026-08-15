@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they [who reject all thought of the Last Hour] were to see a sign [of its approach], they would turn aside and say, “An ever-recurring delusion!” –* — **Al-Qamar (54:2)**
+> 📖 *Most certainly will I fill hell with thee and such of them as shall follow thee, all together!”* — **Saad (38:85)**
 <!-- quran-verse-end -->
 
 ---
