@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
+> 📖 *None the less man chooses to deny what lies ahead of him,* — **Al-Qiyaama (75:5)**
 <!-- quran-verse-end -->
 
 ---
