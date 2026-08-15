@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.* — **Al-Mujaadila (58:16)**
+> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
 <!-- quran-verse-end -->
 
 ---
