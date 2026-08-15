@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”* — **Saba (34:29)**
+> 📖 *Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store* — **Al-Mujaadila (58:5)**
 <!-- quran-verse-end -->
 
 ---
