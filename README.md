@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:* — **As-Sajda (32:2)**
+> 📖 *they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.* — **Al-Mujaadila (58:16)**
 <!-- quran-verse-end -->
 
 ---
