@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they who give the lie to this divine writ and [thus] to all [the messages] with which We sent forth Our apostles [of old]? But in time they will come to know [how blind they have been: they will know it on Judgment Day],* — **Ghafir (40:70)**
+> 📖 *Only he should visit or tend God's houses of worship who believes in God and the Last Day, and is constant in prayer, and spends in charity, and stands in awe of none but God: for [only such as] these may hope to be among the right-guided!* — **At-Tawba (9:18)**
 <!-- quran-verse-end -->
 
 ---
