@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they [whose minds are perverted] give thee the lie, [O Prophet, remember that] even so, before thy time, have [other] apostles been given the lie: for [the unbelievers always refuse to admit that] all things go back to God [as their source].* — **Faatir (35:4)**
+> 📖 *Thereupon an earthquake overtook them: and then they lay lifeless, in their very homes, on the ground.* — **Al-A'raaf (7:78)**
 <!-- quran-verse-end -->
 
 ---
