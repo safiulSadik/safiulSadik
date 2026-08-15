@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
 <!-- quran-verse-end -->
 
 ---
