@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, if they should come to know of you, they might stone you to death or force you back to their faith-in which case you would never attain to any good!"* — **Al-Kahf (18:20)**
+> 📖 *BEHOLD, it is indeed for Us to grace [you] with guidance;* — **Al-Lail (92:12)**
 <!-- quran-verse-end -->
 
 ---
