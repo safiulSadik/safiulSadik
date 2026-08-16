@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Only he should visit or tend God's houses of worship who believes in God and the Last Day, and is constant in prayer, and spends in charity, and stands in awe of none but God: for [only such as] these may hope to be among the right-guided!* — **At-Tawba (9:18)**
+> 📖 *BE CONSTANT in [thy] prayer from the time when the sun has passed its zenith till the darkness of night, and [be ever mindful of its] recitation at dawn: for, behold, the recitation [of prayer] at dawn is indeed witnessed [by all that is holy].* — **Al-Israa (17:78)**
 <!-- quran-verse-end -->
 
 ---
