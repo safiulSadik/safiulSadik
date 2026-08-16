@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when all men shall stand before the Sustainer of all the worlds?* — **Al-Mutaffifin (83:6)**
+> 📖 *NOW, INDEED, We create man out of the essence of clay,* — **Al-Muminoon (23:12)**
 <!-- quran-verse-end -->
 
 ---
