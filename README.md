@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, it is indeed for Us to grace [you] with guidance;* — **Al-Lail (92:12)**
+> 📖 *and shown him the two highways [of good and evil]?* — **Al-Balad (90:10)**
 <!-- quran-verse-end -->
 
 ---
