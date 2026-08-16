@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] how couldst thou tell anything about it,* — **An-Naazi'aat (79:43)**
+> 📖 *they know but the outer surface of this world’s life, whereas of the ultimate things they are utterly un­aware.* — **Ar-Room (30:7)**
 <!-- quran-verse-end -->
 
 ---
