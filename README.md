@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and shown him the two highways [of good and evil]?* — **Al-Balad (90:10)**
+> 📖 *All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.* — **Al-Hajj (22:6)**
 <!-- quran-verse-end -->
 
 ---
