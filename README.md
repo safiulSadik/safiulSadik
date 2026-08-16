@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *(It is) they who [truly] follow God’s revelation, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance - it is they who may look forward to a bargain that can never fail,* — **Faatir (35:29)**
+> 📖 *VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!* — **Al-Insaan (76:23)**
 <!-- quran-verse-end -->
 
 ---
