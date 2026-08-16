@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *aforetime, as a guidance unto mankind, and it is He who has bestowed [upon man] the standard by which to discern the true from the false. Behold, as for those who are bent on denying God's messages - grievous suffering awaits them: for God is almighty, an avenger of evil.* — **Aal-i-Imraan (3:4)**
+> 📖 *Say: "It is He who has multiplied you on earth; and it is unto Him that you shall be gathered [on resurrection]."* — **Al-Mulk (67:24)**
 <!-- quran-verse-end -->
 
 ---
