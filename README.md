@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW, INDEED, We create man out of the essence of clay,* — **Al-Muminoon (23:12)**
+> 📖 *[But] how couldst thou tell anything about it,* — **An-Naazi'aat (79:43)**
 <!-- quran-verse-end -->
 
 ---
