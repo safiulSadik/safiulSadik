@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware that God sends down water from the skies, whereby We bring forth fruits of many hues - just as in the mountains there are streaks of white and red of various shades, as well as (others) raven-black,* — **Faatir (35:27)**
+> 📖 *aforetime, as a guidance unto mankind, and it is He who has bestowed [upon man] the standard by which to discern the true from the false. Behold, as for those who are bent on denying God's messages - grievous suffering awaits them: for God is almighty, an avenger of evil.* — **Aal-i-Imraan (3:4)**
 <!-- quran-verse-end -->
 
 ---
