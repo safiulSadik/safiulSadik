@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.* — **Al-Hajj (22:6)**
+> 📖 *“And turn not thy cheek away from people in [false] pride, and walk not haughtily on earth: for, behold, God does not love anyone who, out of self- conceit, acts in a boastful manner.* — **Luqman (31:18)**
 <!-- quran-verse-end -->
 
 ---
