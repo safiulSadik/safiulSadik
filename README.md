@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whenever they spend anything [for the sake of God], be it little or much, and whenever they move on earth [in God's cause] -it is recorded in their favour, and God will grant them the best reward for all that they have been doing.* — **At-Tawba (9:121)**
+> 📖 *the Day when all men shall stand before the Sustainer of all the worlds?* — **Al-Mutaffifin (83:6)**
 <!-- quran-verse-end -->
 
 ---
