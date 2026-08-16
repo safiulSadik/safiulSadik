@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they know but the outer surface of this world’s life, whereas of the ultimate things they are utterly un­aware.* — **Ar-Room (30:7)**
+> 📖 *for, behold, if they should come to know of you, they might stone you to death or force you back to their faith-in which case you would never attain to any good!"* — **Al-Kahf (18:20)**
 <!-- quran-verse-end -->
 
 ---
