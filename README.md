@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!* — **Al-Insaan (76:23)**
+> 📖 *ART THOU NOT aware that God sends down water from the skies, whereby We bring forth fruits of many hues - just as in the mountains there are streaks of white and red of various shades, as well as (others) raven-black,* — **Faatir (35:27)**
 <!-- quran-verse-end -->
 
 ---
