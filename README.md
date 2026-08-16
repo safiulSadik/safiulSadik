@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *(It is) they who [truly] follow God’s revelation, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance - it is they who may look forward to a bargain that can never fail,* — **Faatir (35:29)**
 <!-- quran-verse-end -->
 
 ---
