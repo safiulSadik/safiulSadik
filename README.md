@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "It is He who has multiplied you on earth; and it is unto Him that you shall be gathered [on resurrection]."* — **Al-Mulk (67:24)**
+> 📖 *And whenever they spend anything [for the sake of God], be it little or much, and whenever they move on earth [in God's cause] -it is recorded in their favour, and God will grant them the best reward for all that they have been doing.* — **At-Tawba (9:121)**
 <!-- quran-verse-end -->
 
 ---
