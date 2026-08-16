@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BE CONSTANT in [thy] prayer from the time when the sun has passed its zenith till the darkness of night, and [be ever mindful of its] recitation at dawn: for, behold, the recitation [of prayer] at dawn is indeed witnessed [by all that is holy].* — **Al-Israa (17:78)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
