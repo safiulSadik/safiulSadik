@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *side by side with God?” They will answer: “They have forsaken us - or, rather, what we were wont to invoke aforetime did not exist at all!” And they will be told:] “It is thus that God lets the deniers of the truth go astray:* — **Ghafir (40:74)**
+> 📖 *If they but knew - they who are bent on deny­ing the truth - [that there will come] a time when they will not be able to ward off the fire from their faces, nor from their backs, and will not find any succour!* — **Al-Anbiyaa (21:39)**
 <!-- quran-verse-end -->
 
 ---
