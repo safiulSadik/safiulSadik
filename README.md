@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
+> 📖 *side by side with God?” They will answer: “They have forsaken us - or, rather, what we were wont to invoke aforetime did not exist at all!” And they will be told:] “It is thus that God lets the deniers of the truth go astray:* — **Ghafir (40:74)**
 <!-- quran-verse-end -->
 
 ---
