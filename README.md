@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:* — **Ash-Shu'araa (26:143)**
+> 📖 *or of a needy [stranger] lying in the dust –* — **Al-Balad (90:16)**
 <!-- quran-verse-end -->
 
 ---
