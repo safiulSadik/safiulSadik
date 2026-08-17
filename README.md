@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered He: "Verily, so be it: thou shalt be among those who are granted respite* — **Al-Hijr (15:37)**
+> 📖 *And from the wind-driven clouds We send down waters pouring in abundance,* — **An-Naba (78:14)**
 <!-- quran-verse-end -->
 
 ---
