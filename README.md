@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If they but knew - they who are bent on deny­ing the truth - [that there will come] a time when they will not be able to ward off the fire from their faces, nor from their backs, and will not find any succour!* — **Al-Anbiyaa (21:39)**
+> 📖 *Answered He: "Verily, so be it: thou shalt be among those who are granted respite* — **Al-Hijr (15:37)**
 <!-- quran-verse-end -->
 
 ---
