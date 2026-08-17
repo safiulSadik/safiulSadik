@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is [such as] these from whom We shall accept the best that they ever did, and whose bad deeds We shall overlook: [they will find themselves] among those who are destined for paradise, in fulfillment of the true promise which they were given [in this world].* — **Al-Ahqaf (46:16)**
+> 📖 *NAY, VERILY, the record of the wicked is indeed [set down] in a mode inescapable!* — **Al-Mutaffifin (83:7)**
 <!-- quran-verse-end -->
 
 ---
