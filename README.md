@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Whenever] He sends down water from the sky, and [once-dry] river-beds are running high according to their measure, the stream carries scum on its surface; and, likewise, from that [metal] which they smelt in the fire in order to make ornaments or utensils, [there rises] scum. In this way does God set forth the parable of truth and falsehood: for, as far as the scum is concerned, it passes away as [does all] dross; but that which is of benefit to man abides on earth. In this way does God set forth the parables* — **Ar-Ra'd (13:17)**
+> 📖 *They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.* — **Al-Ahqaf (46:30)**
 <!-- quran-verse-end -->
 
 ---
