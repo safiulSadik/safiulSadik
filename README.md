@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it is in this way that We cause the great ones in every land to become its [greatest] evildoers, there to weave their schemes: yet it is only against themselves that they scheme -and they perceive it not.* — **Al-An'aam (6:123)**
+> 📖 *Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:* — **Ash-Shu'araa (26:143)**
 <!-- quran-verse-end -->
 
 ---
