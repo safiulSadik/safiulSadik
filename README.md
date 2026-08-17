@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yielding its fruit at all times by its Sustainer's leave. And [thus it is that] God propounds parables unto men,' so that they might bethink themselves [of the truth].* — **Ibrahim (14:25)**
+> 📖 *And it is in this way that We cause the great ones in every land to become its [greatest] evildoers, there to weave their schemes: yet it is only against themselves that they scheme -and they perceive it not.* — **Al-An'aam (6:123)**
 <!-- quran-verse-end -->
 
 ---
