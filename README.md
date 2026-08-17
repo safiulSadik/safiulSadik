@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a goal for all who are wont to transgress the bounds of what is right!* — **An-Naba (78:22)**
+> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
 <!-- quran-verse-end -->
 
 ---
