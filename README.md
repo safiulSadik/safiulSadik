@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [that], when the Qur’an is read unto them, they do not fall down in prostration?* — **Al-Inshiqaaq (84:21)**
+> 📖 *Say: “For this, no reward do I ask of you [- no reward] other than that he who so wills may unto his Sustainer find a way!”* — **Al-Furqaan (25:57)**
 <!-- quran-verse-end -->
 
 ---
