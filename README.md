@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “For this, no reward do I ask of you [- no reward] other than that he who so wills may unto his Sustainer find a way!”* — **Al-Furqaan (25:57)**
+> 📖 *a goal for all who are wont to transgress the bounds of what is right!* — **An-Naba (78:22)**
 <!-- quran-verse-end -->
 
 ---
