@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And we made [this] known to the children of Israel through revelation: Twice, indeed, will you spread corruption on earth and will indeed become grossly overbearing!* — **Al-Israa (17:4)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
