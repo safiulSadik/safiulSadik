@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS THERE COME unto thee the tiding of the Overshadowing Event?'* — **Al-Ghaashiya (88:1)**
+> 📖 *Behold, this [Qur’an] is indeed the [inspired] word of a noble apostle,* — **Al-Haaqqa (69:40)**
 <!-- quran-verse-end -->
 
 ---
