@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus do We reward the doers of good –* — **As-Saaffaat (37:121)**
+> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
 <!-- quran-verse-end -->
 
 ---
