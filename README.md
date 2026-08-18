@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night as it veils it darkly!* — **Ash-Shams (91:4)**
+> 📖 *And we made [this] known to the children of Israel through revelation: Twice, indeed, will you spread corruption on earth and will indeed become grossly overbearing!* — **Al-Israa (17:4)**
 <!-- quran-verse-end -->
 
 ---
