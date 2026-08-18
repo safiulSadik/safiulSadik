@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
+> 📖 *For, when We assigned unto Abraham the site of this Temple, [We said unto him:] “Do not ascribe divinity to aught beside Me!” and: “Purify My Temple for those who will walk around it, and those who will stand before it [in meditation], and those who will bow down and prostrate themselves [in prayer].”* — **Al-Hajj (22:26)**
 <!-- quran-verse-end -->
 
 ---
