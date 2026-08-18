@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
+> 📖 *their hearts set on passing ­delights; yet they who are [thus] bent on wrongdoing conceal their innermost thoughts [when they say to one another], “Is this [Muhammad] anything but a mortal like yourselves? Will you, then, yield to [his] spellbinding eloquence with your eyes open?”* — **Al-Anbiyaa (21:3)**
 <!-- quran-verse-end -->
 
 ---
