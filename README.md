@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, before God prostrates itself all that is in the heavens and all that is on earth - every beast that moves, and the angels: [even] these do not bear themselves with false pride:* — **An-Nahl (16:49)**
+> 📖 *and the night as it veils it darkly!* — **Ash-Shams (91:4)**
 <!-- quran-verse-end -->
 
 ---
