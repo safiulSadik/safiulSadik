@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:* — **Fussilat (41:2)**
 <!-- quran-verse-end -->
 
 ---
