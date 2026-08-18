@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, when We assigned unto Abraham the site of this Temple, [We said unto him:] “Do not ascribe divinity to aught beside Me!” and: “Purify My Temple for those who will walk around it, and those who will stand before it [in meditation], and those who will bow down and prostrate themselves [in prayer].”* — **Al-Hajj (22:26)**
+> 📖 *Thus do We reward the doers of good –* — **As-Saaffaat (37:121)**
 <!-- quran-verse-end -->
 
 ---
