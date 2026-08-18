@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
+> 📖 *And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.* — **Al-Fath (48:24)**
 <!-- quran-verse-end -->
 
 ---
