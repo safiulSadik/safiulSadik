@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *O YOU who have attained to faith! Intoxicants, and games of chance, and idolatrous practices, and the divining of the future are but a loathsome evil of Satan's doing:' shun it, then, so that you might attain to a happy state!* — **Al-Maaida (5:90)**
 <!-- quran-verse-end -->
 
 ---
