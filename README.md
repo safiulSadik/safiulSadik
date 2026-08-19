@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *and whenever good fortune comes to him, he selfishly withholds it [from others].* — **Al-Ma'aarij (70:21)**
 <!-- quran-verse-end -->
 
 ---
