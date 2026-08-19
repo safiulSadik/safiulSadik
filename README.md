@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
+> 📖 *ALL THAT IS in the heavens and on earth extols God’s limitless glory: for He alone is almighty, truly wise!* — **Al-Hadid (57:1)**
 <!-- quran-verse-end -->
 
 ---
