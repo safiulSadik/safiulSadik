@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
 <!-- quran-verse-end -->
 
 ---
