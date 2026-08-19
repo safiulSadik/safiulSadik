@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
+> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
 <!-- quran-verse-end -->
 
 ---
