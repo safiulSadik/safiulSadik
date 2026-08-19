@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so they say: "[O Muhammad,] we shall not believe thee till thou cause a spring to gush forth for us from the earth,* — **Al-Israa (17:90)**
+> 📖 *Nay, but this [divine writ which they reject] is a discourse sublime,* — **Al-Burooj (85:21)**
 <!-- quran-verse-end -->
 
 ---
