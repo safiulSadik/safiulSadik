@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They are saying, too, "Why has not an angel (visibly] been sent down unto him?" But had we sent down an angel, all would indeed have been decided, and they would have been allowed no further respite [for repentance.* — **Al-An'aam (6:8)**
+> 📖 *And on the Day on which the skies, together with the clouds, shall burst asunder, and the angels are made to descend in a mighty descent –* — **Al-Furqaan (25:25)**
 <!-- quran-verse-end -->
 
 ---
