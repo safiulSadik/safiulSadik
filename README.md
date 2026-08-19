@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they prayed [to God] that the truth be made to triumph. And [thus it is:] every arrogant enemy of the truth shall be undone [in the life to come],* — **Ibrahim (14:15)**
+> 📖 *[resting on couches, they will look up [to God]:* — **Al-Mutaffifin (83:23)**
 <!-- quran-verse-end -->
 
 ---
