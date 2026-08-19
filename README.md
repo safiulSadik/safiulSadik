@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent unto the unlettered people an apostle from among themselves, to convey unto them His messages, and to cause them to grow in purity, and to impart unto them the divine writ as well as wisdom - whereas before that they were indeed, most obviously, lost in error* — **Al-Jumu'a (62:2)**
+> 📖 *and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.* — **At-Talaaq (65:3)**
 <!-- quran-verse-end -->
 
 ---
