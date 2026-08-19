@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on the Day on which the skies, together with the clouds, shall burst asunder, and the angels are made to descend in a mighty descent –* — **Al-Furqaan (25:25)**
+> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
 <!-- quran-verse-end -->
 
 ---
