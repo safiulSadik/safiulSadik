@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever good fortune comes to him, he selfishly withholds it [from others].* — **Al-Ma'aarij (70:21)**
+> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
 <!-- quran-verse-end -->
 
 ---
