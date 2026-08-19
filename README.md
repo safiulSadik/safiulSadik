@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be better of speech than he who calls [his fellow-men] unto God, and does what is just and right, and says, “Verily, I am of those who have surrendered themselves to God”?* — **Fussilat (41:33)**
+> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
 <!-- quran-verse-end -->
 
 ---
