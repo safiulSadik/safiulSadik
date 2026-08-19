@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
+> 📖 *and so they say: "[O Muhammad,] we shall not believe thee till thou cause a spring to gush forth for us from the earth,* — **Al-Israa (17:90)**
 <!-- quran-verse-end -->
 
 ---
