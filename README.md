@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
+> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
 <!-- quran-verse-end -->
 
 ---
