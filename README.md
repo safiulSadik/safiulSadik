@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Be true to your covenants! Lawful to you is the [flesh of every] beast that feeds on plants, save what is mentioned to you [hereinafter]: but you are not allowed to hunt while you are in the state of pilgrimage. Behold, God ordains in accordance with His will.* — **Al-Maaida (5:1)**
+> 📖 *in which case We would indeed have made thee taste double [chastisement] in life and double [chastisement] after death, and thou wouldst have found none to succour thee against Us!* — **Al-Israa (17:75)**
 <!-- quran-verse-end -->
 
 ---
