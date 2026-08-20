@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
+> 📖 *O YOU who have attained to faith! Be true to your covenants! Lawful to you is the [flesh of every] beast that feeds on plants, save what is mentioned to you [hereinafter]: but you are not allowed to hunt while you are in the state of pilgrimage. Behold, God ordains in accordance with His will.* — **Al-Maaida (5:1)**
 <!-- quran-verse-end -->
 
 ---
