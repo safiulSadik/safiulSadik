@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.* — **Al-Bayyina (98:8)**
+> 📖 *Whoever looks forward [with hope and awe] to meeting God [on Resurrection Day, let him be ready for it]: for, behold, the end set by God [for every­one’s life] is bound to come - and He alone is all-hearing, all-knowing!* — **Al-Ankaboot (29:5)**
 <!-- quran-verse-end -->
 
 ---
