@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
 <!-- quran-verse-end -->
 
 ---
