@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[God] answered: "O Noah, behold, he was not of thy family, for, verily, he was unrighteous in his conduct. And thou shalt not ask of Me anything whereof thou canst not have any knowledge: thus, behold, do I admonish thee lest thou become one of those who are unaware [of what is right]."* — **Hud (11:46)**
+> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
 <!-- quran-verse-end -->
 
 ---
