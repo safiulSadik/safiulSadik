@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [then,] the twilight of death brings with it the [full] truth that [very thing, O man,] from which thou wouldst always look away! –* — **Qaaf (50:19)**
+> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
 <!-- quran-verse-end -->
 
 ---
