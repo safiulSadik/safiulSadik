@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
+> 📖 *DOES MAN, then, think that he is to be left to himself to go about at will?* — **Al-Qiyaama (75:36)**
 <!-- quran-verse-end -->
 
 ---
