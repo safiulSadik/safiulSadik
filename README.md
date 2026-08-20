@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
+> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
 <!-- quran-verse-end -->
 
 ---
