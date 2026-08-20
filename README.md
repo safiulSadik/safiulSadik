@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he [knowingly] attribute his own lying inventions to God - or is he a madman?” Nay, [there is no madness in this Prophet -] but they who will not believe in the life to come are [bound to lose themselves] in suffering and in a profound aberration.* — **Saba (34:8)**
+> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
 <!-- quran-verse-end -->
 
 ---
