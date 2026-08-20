@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whoever looks forward [with hope and awe] to meeting God [on Resurrection Day, let him be ready for it]: for, behold, the end set by God [for every­one’s life] is bound to come - and He alone is all-hearing, all-knowing!* — **Al-Ankaboot (29:5)**
+> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
 <!-- quran-verse-end -->
 
 ---
