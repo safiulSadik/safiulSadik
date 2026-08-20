@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
 <!-- quran-verse-end -->
 
 ---
