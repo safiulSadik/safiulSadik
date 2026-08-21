@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:* — **At-Talaaq (65:8)**
+> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
 <!-- quran-verse-end -->
 
 ---
