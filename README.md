@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AS FOR the adulteress and the adulterer flog each of them with a hundred stripes, and let not compassion with them keep you from [carrying out] this law of God, if you [truly] believe in God and the Last Day; and let a group of the believers witness their chastisement.* — **An-Noor (24:2)**
+> 📖 *Verily, most surely, your God is One –* — **As-Saaffaat (37:4)**
 <!-- quran-verse-end -->
 
 ---
