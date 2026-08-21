@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who were conscious of their Sus­tainer will be urged on in throngs towards paradise till, when they reach it, they shall find its gates wide- open; and its keepers will say unto them, “Peace be upon you! Well have you done: enter, then, this [paradise], herein to abide!”* — **Az-Zumar (39:73)**
+> 📖 *And when We told the angels, "Prostrate yourselves before Adam!" -they all prostrated themselves, save Iblis, who refused and gloried in his arrogance: and thus he became one of those who deny the truth.* — **Al-Baqara (2:34)**
 <!-- quran-verse-end -->
 
 ---
