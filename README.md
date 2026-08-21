@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *on the Day when all secrets will be laid bare,* — **At-Taariq (86:9)**
 <!-- quran-verse-end -->
 
 ---
