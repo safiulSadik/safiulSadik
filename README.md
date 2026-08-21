@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has made the sea subservient [to His laws, so that it be of use] to you so that ships might sail through it at His behest, and that you might seek to obtain [what you need] of His bounty, and that you might have cause to be grateful.* — **Al-Jaathiya (45:12)**
+> 📖 *But those who were conscious of their Sus­tainer will be urged on in throngs towards paradise till, when they reach it, they shall find its gates wide- open; and its keepers will say unto them, “Peace be upon you! Well have you done: enter, then, this [paradise], herein to abide!”* — **Az-Zumar (39:73)**
 <!-- quran-verse-end -->
 
 ---
