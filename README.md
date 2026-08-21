@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when all secrets will be laid bare,* — **At-Taariq (86:9)**
+> 📖 *TO [THIS] TRUTH gave the lie, in their overweening arrogance, [the tribe of] Thamud,* — **Ash-Shams (91:11)**
 <!-- quran-verse-end -->
 
 ---
