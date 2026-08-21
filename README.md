@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, most surely, your God is One –* — **As-Saaffaat (37:4)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
