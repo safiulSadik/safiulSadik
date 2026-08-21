@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
+> 📖 *Ask them which of them is able to vouch for this!* — **Al-Qalam (68:40)**
 <!-- quran-verse-end -->
 
 ---
