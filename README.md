@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *And beware of that temptation to evil which does not befall only those among you who are bent on denying the truth, to the exclusion of others; and know that God is severe in retribution.* — **Al-Anfaal (8:25)**
 <!-- quran-verse-end -->
 
 ---
