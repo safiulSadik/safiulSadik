@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Kill no game while you are in the state of pilgrimage. And whoever of you kills it intentionally, [shall make] amends in cattle equivalent to what he has killed - with two persons of probity giving their judgment thereon- to be brought as an offering to the Ka`bah; or else he may atone for his sin by feeding the needy, or by the equivalent thereof in fasting: [this,] in order that. he taste the full gravity of his deed, [while] God shall have effaced the past. But whoever does it again, God will inflict His retribution on him: for God is almighty, an avenger of evil.* — **Al-Maaida (5:95)**
+> 📖 *AS FOR the adulteress and the adulterer flog each of them with a hundred stripes, and let not compassion with them keep you from [carrying out] this law of God, if you [truly] believe in God and the Last Day; and let a group of the believers witness their chastisement.* — **An-Noor (24:2)**
 <!-- quran-verse-end -->
 
 ---
