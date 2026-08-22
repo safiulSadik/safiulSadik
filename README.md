@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be placed in his left hand, he will exclaim: "Oh, would that I had never been shown this my record,* — **Al-Haaqqa (69:25)**
+> 📖 *O you who have attained to faith! Do not raise your voices above the voice of the Prophet, and neither speak loudly to him, as you would speak loudly to one another, lest all your [good] deeds come to nought without your perceiving it.* — **Al-Hujuraat (49:2)**
 <!-- quran-verse-end -->
 
 ---
