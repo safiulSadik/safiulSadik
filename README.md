@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.* — **Al-Munaafiqoon (63:7)**
+> 📖 *It is not conceivable that a human being unto whom God had granted revelation, and sound judgment, and prophethood, should thereafter have said unto people, "Worship me beside God"; but rather [did he exhort them], "Become men of God by spreading the knowledge of the divine writ, and by your own deep study [thereof]."* — **Aal-i-Imraan (3:79)**
 <!-- quran-verse-end -->
 
 ---
