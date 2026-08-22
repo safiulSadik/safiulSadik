@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when he saw that their hands did not reach out towards it, he deemed their conduct strange and became apprehensive of them. [But] they said: "Fear not! Behold, we are sent to the people of Lot.* — **Hud (11:70)**
+> 📖 *Said [Salih to the erring ones]: Why do you seek to hasten the coming upon you of evil instead of hoping for the good?” Why do you not, rather, ask God to forgive you your sins, so that you might be graced with His mercy?”* — **An-Naml (27:46)**
 <!-- quran-verse-end -->
 
 ---
