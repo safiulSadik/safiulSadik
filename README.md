@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW [thus it is:] when affliction befalls man, he is likely to cry out to his Sustainer, turning unto Him [for help]; but as soon as He has bestowed upon him a boon by His grace, he forgets Him whom he in­voked before, and claims that there are other powers that could rival God - and thus leads [others] astray from His path. Say [unto him who sins in this way]: “Enjoy thyself for a while in this thy denial of the truth; [yet,] verily, thou art of those who are destined for the fire!* — **Az-Zumar (39:8)**
+> 📖 *Remain, then, conscious of God as best you can, and listen [to Him], and pay heed. And spend in charity for the good of your own selves: for, such as from their own covetousness are saved – it is they, they that shall attain to a happy state!* — **At-Taghaabun (64:16)**
 <!-- quran-verse-end -->
 
 ---
