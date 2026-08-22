@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you are ingrate behold, God has no need of you; none the less, He does not approve of in­gratitude in His servants: whereas, if you show grati­tude, He approves it in you. And no bearer of burdens shall be made to bear another’s burden. In time, unto your Sustainer you all must return, and then He will make you [truly] understand all that you were doing [in life]: for, verily, He has full knowledge of what is in the hearts [of men].* — **Az-Zumar (39:7)**
+> 📖 *Thus, for all their fury, God repulsed those who were bent on denying the truth; no advantage did they gain, since God was enough to [protect] the believers in battle - seeing that God is most powerful, almighty;* — **Al-Ahzaab (33:25)**
 <!-- quran-verse-end -->
 
 ---
