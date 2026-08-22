@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said the most right-minded among them: "Did I not tell you, 'Will you not extol God's limitless glory?’"* — **Al-Qalam (68:28)**
+> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
 <!-- quran-verse-end -->
 
 ---
