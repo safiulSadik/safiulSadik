@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whomsoever God wills to guide, his bosom He opens wide with willingness towards self-surrender [unto Him]; and whomsoever He wills to let go astray, his bosom He causes to be tight and constricted, as if he were climbing unto the skies: it is thus that God inflicts horror upon those who will not believe.* — **Al-An'aam (6:125)**
+> 📖 *It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.* — **Al-Munaafiqoon (63:7)**
 <!-- quran-verse-end -->
 
 ---
