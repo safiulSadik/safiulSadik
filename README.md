@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, for all their fury, God repulsed those who were bent on denying the truth; no advantage did they gain, since God was enough to [protect] the believers in battle - seeing that God is most powerful, almighty;* — **Al-Ahzaab (33:25)**
+> 📖 *those who give the lie to the [coming of] Judgment Day:* — **Al-Mutaffifin (83:11)**
 <!-- quran-verse-end -->
 
 ---
