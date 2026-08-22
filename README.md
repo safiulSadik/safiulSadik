@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it is not We who will be doing wrong unto them, but it is they who will have wronged them­selves.* — **Az-Zukhruf (43:76)**
+> 📖 *But as for him whose record shall be placed in his left hand, he will exclaim: "Oh, would that I had never been shown this my record,* — **Al-Haaqqa (69:25)**
 <!-- quran-verse-end -->
 
 ---
