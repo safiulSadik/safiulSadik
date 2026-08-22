@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did We not destroy [so many of] those [sinners] of olden days?* — **Al-Mursalaat (77:16)**
+> 📖 *And whomsoever God wills to guide, his bosom He opens wide with willingness towards self-surrender [unto Him]; and whomsoever He wills to let go astray, his bosom He causes to be tight and constricted, as if he were climbing unto the skies: it is thus that God inflicts horror upon those who will not believe.* — **Al-An'aam (6:125)**
 <!-- quran-verse-end -->
 
 ---
