@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who give the lie to the [coming of] Judgment Day:* — **Al-Mutaffifin (83:11)**
+> 📖 *And it is not We who will be doing wrong unto them, but it is they who will have wronged them­selves.* — **Az-Zukhruf (43:76)**
 <!-- quran-verse-end -->
 
 ---
