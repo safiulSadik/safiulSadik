@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Remain, then, conscious of God as best you can, and listen [to Him], and pay heed. And spend in charity for the good of your own selves: for, such as from their own covetousness are saved – it is they, they that shall attain to a happy state!* — **At-Taghaabun (64:16)**
+> 📖 *And We bestowed upon him Isaac and [Isaacs son] Jacob as an additional gift and caused all of them to be righteous men,* — **Al-Anbiyaa (21:72)**
 <!-- quran-verse-end -->
 
 ---
