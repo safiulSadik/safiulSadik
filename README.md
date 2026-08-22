@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Salih to the erring ones]: Why do you seek to hasten the coming upon you of evil instead of hoping for the good?” Why do you not, rather, ask God to forgive you your sins, so that you might be graced with His mercy?”* — **An-Naml (27:46)**
+> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
 <!-- quran-verse-end -->
 
 ---
