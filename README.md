@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We bestowed upon him Isaac and [Isaacs son] Jacob as an additional gift and caused all of them to be righteous men,* — **Al-Anbiyaa (21:72)**
+> 📖 *Did We not destroy [so many of] those [sinners] of olden days?* — **Al-Mursalaat (77:16)**
 <!-- quran-verse-end -->
 
 ---
