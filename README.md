@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when We told the angels, "Prostrate yourselves before Adam!" -they all prostrated themselves, save Iblis, who refused and gloried in his arrogance: and thus he became one of those who deny the truth.* — **Al-Baqara (2:34)**
+> 📖 *lofty and pure,* — **Abasa (80:14)**
 <!-- quran-verse-end -->
 
 ---
