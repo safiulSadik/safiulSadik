@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is not conceivable that a human being unto whom God had granted revelation, and sound judgment, and prophethood, should thereafter have said unto people, "Worship me beside God"; but rather [did he exhort them], "Become men of God by spreading the knowledge of the divine writ, and by your own deep study [thereof]."* — **Aal-i-Imraan (3:79)**
+> 📖 *And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!* — **At-Tahrim (66:11)**
 <!-- quran-verse-end -->
 
 ---
