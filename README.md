@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but as for those who abandon themselves to wrongdoing - they are indeed but fuel for [the fires of] hell!’"* — **Al-Jinn (72:15)**
+> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
 <!-- quran-verse-end -->
 
 ---
