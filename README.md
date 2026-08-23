@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.* — **Al-Bayyina (98:6)**
+> 📖 *And so, a barrier will be set between them and all that they had [ever] desired, as will be done to such of their kind as lived before their time: for, behold, they [too] were lost in doubt amounting to suspicion.* — **Saba (34:54)**
 <!-- quran-verse-end -->
 
 ---
