@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.* — **Al-Ahqaf (46:19)**
+> 📖 *notwithstanding that we were established in positions [which we had thought well-suited] to listening to [whatever secrets might be in] it: and anyone who now [or ever] tries to listen will [likewise] find a flame lying in wait for him!* — **Al-Jinn (72:9)**
 <!-- quran-verse-end -->
 
 ---
