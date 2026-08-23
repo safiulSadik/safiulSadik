@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how many a township have We destroyed because it had been immersed in evildoing - and now they [all] lie deserted, with their roofs caved in! And how many a well lies abandoned, and how many a castle that [once] stood high!* — **Al-Hajj (22:45)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
