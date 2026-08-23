@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.* — **Al-Jumu'a (62:7)**
+> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
 <!-- quran-verse-end -->
 
 ---
