@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
+> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
 <!-- quran-verse-end -->
 
 ---
