@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
 <!-- quran-verse-end -->
 
 ---
