@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *SAY [O Muhammad]: “O men! I am but a plain warner [sent by God] unto you!”* — **Al-Hajj (22:49)**
 <!-- quran-verse-end -->
 
 ---
