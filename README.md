@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
+> 📖 *but as for those who abandon themselves to wrongdoing - they are indeed but fuel for [the fires of] hell!’"* — **Al-Jinn (72:15)**
 <!-- quran-verse-end -->
 
 ---
