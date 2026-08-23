@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *notwithstanding that we were established in positions [which we had thought well-suited] to listening to [whatever secrets might be in] it: and anyone who now [or ever] tries to listen will [likewise] find a flame lying in wait for him!* — **Al-Jinn (72:9)**
+> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
 <!-- quran-verse-end -->
 
 ---
