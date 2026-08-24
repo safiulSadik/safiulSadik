@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] her who guarded her chastity, whereupon We breathed into her of Our spirit and caused her, together with her son, to become a symbol [of Our grace] unto all people.* — **Al-Anbiyaa (21:91)**
+> 📖 *AND [know that] women advanced in years, who no longer feel any sexual desire, incur no sin if they discard their [outer] garments, provided they do not aim at a showy display of [their] charms. But [even so,] it is better for them to abstain [from this]: and God is all-hearing, all-knowing.* — **An-Noor (24:60)**
 <!-- quran-verse-end -->
 
 ---
