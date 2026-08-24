@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!* — **Al-Muzzammil (73:14)**
+> 📖 *And We have created you in pairs;* — **An-Naba (78:8)**
 <!-- quran-verse-end -->
 
 ---
