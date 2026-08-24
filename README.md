@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, LO, God accepted, through the prophets, this solemn pledge [from the followers of earlier revelation]: "If, after all the revelation and the wisdom which I have vouchsafed unto you, there comes to you an apostle confirming the truth already in your possession, you must believe in him and succour him. Do you" - said He - "acknowledge and accept My bond on this condition?" They answered: "We do acknowledge it." Said He: "Then bear witness [thereto], and I shall be your witness.* — **Aal-i-Imraan (3:81)**
+> 📖 *on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!* — **Al-Muzzammil (73:14)**
 <!-- quran-verse-end -->
 
 ---
