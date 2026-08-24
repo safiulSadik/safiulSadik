@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on the Day on which the skies, together with the clouds, shall burst asunder, and the angels are made to descend in a mighty descent –* — **Al-Furqaan (25:25)**
+> 📖 *Say: “For this, no reward do I ask of you [- no reward] other than that he who so wills may unto his Sustainer find a way!”* — **Al-Furqaan (25:57)**
 <!-- quran-verse-end -->
 
 ---
