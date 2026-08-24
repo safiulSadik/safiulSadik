@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *[All] this is God’s creation: show Me, then, what others than He may have created! Nay, but the evildoers are obviously lost in error!* — **Luqman (31:11)**
 <!-- quran-verse-end -->
 
 ---
