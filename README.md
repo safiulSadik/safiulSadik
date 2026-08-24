@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We have created you in pairs;* — **An-Naba (78:8)**
+> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
 <!-- quran-verse-end -->
 
 ---
