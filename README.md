@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “For this, no reward do I ask of you [- no reward] other than that he who so wills may unto his Sustainer find a way!”* — **Al-Furqaan (25:57)**
+> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
 <!-- quran-verse-end -->
 
 ---
