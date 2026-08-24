@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O our Sustainer! Make us not a plaything for those who are bent on denying the truth! And forgive us our sins, O our sustainer: for Thou alone art, almighty, truly wise!"* — **Al-Mumtahana (60:5)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
