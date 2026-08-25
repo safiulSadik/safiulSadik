@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY WILL ASK thee about intoxicants and games of chance. Say: "In both there is great evil as well as some benefit for man; but the evil which they cause is greater than the benefit which they bring." And they will ask thee as to what they should spend [in God's cause]. Say: "Whatever you can spare." In this way God makes clear unto you His messages, so that you might reflect* — **Al-Baqara (2:219)**
+> 📖 *And [thus it is:] whenever We let [such] people taste [some of Our] grace after hardship has visited them-lo! they forthwith turn to devising false arguments against Our messages. Say: "God is swifter [than you] in His deep devising!" Behold, Our [heavenly] messengers are recording all that you may devise!* — **Yunus (10:21)**
 <!-- quran-verse-end -->
 
 ---
