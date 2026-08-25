@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has created the heavens and the earth and all that is between them in six aeons, and is established on the throne of His almightiness. You have none to protect you from God, and none to intercede for you [on Judgment Day]: will you not, then, bethink yourselves?* — **As-Sajda (32:4)**
+> 📖 *[But,] verily, they who have attained to faith and do good works shall have a reward unending!* — **Fussilat (41:8)**
 <!-- quran-verse-end -->
 
 ---
