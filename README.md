@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS THERE COME unto thee the tiding of the Overshadowing Event?'* — **Al-Ghaashiya (88:1)**
+> 📖 *God admonishes you [hereby] lest you ever revert to the like of this [sin], if you are [truly] believers;* — **An-Noor (24:17)**
 <!-- quran-verse-end -->
 
 ---
