@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to be followed by further [convulsions]!* — **An-Naazi'aat (79:7)**
+> 📖 *HAS THERE COME unto thee the tiding of the Overshadowing Event?'* — **Al-Ghaashiya (88:1)**
 <!-- quran-verse-end -->
 
 ---
