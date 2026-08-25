@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus it is:] whenever We let [such] people taste [some of Our] grace after hardship has visited them-lo! they forthwith turn to devising false arguments against Our messages. Say: "God is swifter [than you] in His deep devising!" Behold, Our [heavenly] messengers are recording all that you may devise!* — **Yunus (10:21)**
+> 📖 *Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:* — **Ash-Shu'araa (26:178)**
 <!-- quran-verse-end -->
 
 ---
