@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Yea-] and most certainly will God mark out those who have [truly] attained to faith, and most certainly will He mark out the hypocrites.* — **Al-Ankaboot (29:11)**
+> 📖 *to be followed by further [convulsions]!* — **An-Naazi'aat (79:7)**
 <!-- quran-verse-end -->
 
 ---
