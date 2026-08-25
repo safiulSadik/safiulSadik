@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when that most hapless wretch from among them rushed forward [to commit his evil deed],* — **Ash-Shams (91:12)**
+> 📖 *and is not – however little you may [be prepared to] believe it - the word of a poet;* — **Al-Haaqqa (69:41)**
 <!-- quran-verse-end -->
 
 ---
