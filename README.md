@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the while We rained a rain [of destruction] upon the others: and dire is such rain upon all who let themselves be warned [to no avail]* — **An-Naml (27:58)**
+> 📖 *[well aware of] those who, [even] if We firmly establish them on earth, remain constant in prayer, and give in charity, and enjoin the doing of what is right and forbid the doing of what is wrong; but with God rests the final outcome of all events.* — **Al-Hajj (22:41)**
 <!-- quran-verse-end -->
 
 ---
