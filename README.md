@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, by Our grace, We saved him and those who stood by him, the while We wiped out the last remnant of those who gave the lie to Our messages and would not believe.* — **Al-A'raaf (7:72)**
+> 📖 *[and they will tell you that their prophets, too, were but mortal men whom We had endowed] with all evidence of the truth and with books of divine wisdom. And upon thee [too] have We bestowed from on high this reminder, so that thou might make clear unto mankind all that has ever been thus bestowed upon them, and that they might take thought.* — **An-Nahl (16:44)**
 <!-- quran-verse-end -->
 
 ---
