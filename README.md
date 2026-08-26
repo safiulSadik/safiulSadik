@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!* — **Al-Mumtahana (60:9)**
+> 📖 *And so, by Our grace, We saved him and those who stood by him, the while We wiped out the last remnant of those who gave the lie to Our messages and would not believe.* — **Al-A'raaf (7:72)**
 <!-- quran-verse-end -->
 
 ---
