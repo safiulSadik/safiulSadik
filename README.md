@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!* — **Ad-Dukhaan (44:7)**
+> 📖 *But as for him whose record shall be placed in his left hand, he will exclaim: "Oh, would that I had never been shown this my record,* — **Al-Haaqqa (69:25)**
 <!-- quran-verse-end -->
 
 ---
