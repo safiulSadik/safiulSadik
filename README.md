@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND LO! We did accept a solemn pledge from all the prophets from thee, [O Muhammad,] as well as from Noah, and Abraham, and Moses, and Jesus the son of Mary -: for We accepted a most weighty, solemn pledge from [all of] them,* — **Al-Ahzaab (33:7)**
+> 📖 *Say: “God’s alone is [the power to bestow the right of] intercession: His [alone] is the dominion over the heavens and the earth; and, in the end, Unto Him you will all be brought back.”* — **Az-Zumar (39:44)**
 <!-- quran-verse-end -->
 
 ---
