@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and they will tell you that their prophets, too, were but mortal men whom We had endowed] with all evidence of the truth and with books of divine wisdom. And upon thee [too] have We bestowed from on high this reminder, so that thou might make clear unto mankind all that has ever been thus bestowed upon them, and that they might take thought.* — **An-Nahl (16:44)**
+> 📖 *indeed, He has full cognizance of them, and has numbered them with [unfailing] numbering;* — **Maryam (19:94)**
 <!-- quran-verse-end -->
 
 ---
