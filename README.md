@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
+> 📖 *the while We rained a rain [of destruction] upon the others: and dire is such rain upon all who let themselves be warned [to no avail]* — **An-Naml (27:58)**
 <!-- quran-verse-end -->
 
 ---
