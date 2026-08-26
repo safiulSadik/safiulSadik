@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *indeed, He has full cognizance of them, and has numbered them with [unfailing] numbering;* — **Maryam (19:94)**
+> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
 <!-- quran-verse-end -->
 
 ---
