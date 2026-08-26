@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [ere this], indeed, We had tried Solomon by placing upon his throne a [lifeless] body; and thereupon he turned [towards Us; and]* — **Saad (38:34)**
+> 📖 *verily, how evil an abode and a station!” -;* — **Al-Furqaan (25:66)**
 <!-- quran-verse-end -->
 
 ---
