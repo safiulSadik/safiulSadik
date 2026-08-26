@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “God’s alone is [the power to bestow the right of] intercession: His [alone] is the dominion over the heavens and the earth; and, in the end, Unto Him you will all be brought back.”* — **Az-Zumar (39:44)**
+> 📖 *For, they claimed that there are powers that could rival God, and so they strayed from His path. Say: "Enjoy yourselves [in this world], but, verily, the fire will be your journey's end!"* — **Ibrahim (14:30)**
 <!-- quran-verse-end -->
 
 ---
