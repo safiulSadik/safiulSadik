@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, they claimed that there are powers that could rival God, and so they strayed from His path. Say: "Enjoy yourselves [in this world], but, verily, the fire will be your journey's end!"* — **Ibrahim (14:30)**
+> 📖 *AND, [likewise,] indeed, the people of Al-Hijr gave the lie to [Our] message-bearers:* — **Al-Hijr (15:80)**
 <!-- quran-verse-end -->
 
 ---
