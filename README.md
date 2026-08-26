@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, [likewise,] indeed, the people of Al-Hijr gave the lie to [Our] message-bearers:* — **Al-Hijr (15:80)**
+> 📖 *But [ere this], indeed, We had tried Solomon by placing upon his throne a [lifeless] body; and thereupon he turned [towards Us; and]* — **Saad (38:34)**
 <!-- quran-verse-end -->
 
 ---
