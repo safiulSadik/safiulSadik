@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, how evil an abode and a station!” -;* — **Al-Furqaan (25:66)**
+> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
 <!-- quran-verse-end -->
 
 ---
