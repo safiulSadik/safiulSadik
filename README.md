@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
+> 📖 *to everyone of you who wills to walk a straight way.* — **At-Takwir (81:28)**
 <!-- quran-verse-end -->
 
 ---
