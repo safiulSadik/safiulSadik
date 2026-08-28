@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to everyone of you who wills to walk a straight way.* — **At-Takwir (81:28)**
+> 📖 *created man out of a germ-cell* — **Al-Alaq (96:2)**
 <!-- quran-verse-end -->
 
 ---
