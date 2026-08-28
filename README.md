@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *created man out of a germ-cell* — **Al-Alaq (96:2)**
+> 📖 *Thus shall it be. And We shall pair them with companions pure, most beautiful of eye.* — **Ad-Dukhaan (44:54)**
 <!-- quran-verse-end -->
 
 ---
