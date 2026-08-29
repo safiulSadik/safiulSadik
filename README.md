@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [We exalted likewise] some of their forefathers and-their offspring and their brethren: We elected them [all], and guided them onto a straight way.* — **Al-An'aam (6:87)**
+> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
 <!-- quran-verse-end -->
 
 ---
