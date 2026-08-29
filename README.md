@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus shall it be. And We shall pair them with companions pure, most beautiful of eye.* — **Ad-Dukhaan (44:54)**
+> 📖 *instead of God, and lead them all onto the way to the blazing fire,* — **As-Saaffaat (37:23)**
 <!-- quran-verse-end -->
 
 ---
