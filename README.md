@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said she: "Oh, woe is me! Shall I bear a child, now that I am an old woman and this husband of mine is an old man? Verily, that would be a strange thing indeed!"* — **Hud (11:72)**
+> 📖 *and [We exalted likewise] some of their forefathers and-their offspring and their brethren: We elected them [all], and guided them onto a straight way.* — **Al-An'aam (6:87)**
 <!-- quran-verse-end -->
 
 ---
