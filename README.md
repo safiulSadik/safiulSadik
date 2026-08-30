@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].* — **Al-Hadid (57:18)**
+> 📖 *VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:* — **An-Naba (78:17)**
 <!-- quran-verse-end -->
 
 ---
