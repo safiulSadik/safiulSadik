@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:* — **An-Naba (78:17)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:40)**
 <!-- quran-verse-end -->
 
 ---
