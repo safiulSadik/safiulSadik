@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the like of whom has never been reared in all the land? –* — **Al-Fajr (89:8)**
+> 📖 *Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].* — **Al-Hadid (57:18)**
 <!-- quran-verse-end -->
 
 ---
