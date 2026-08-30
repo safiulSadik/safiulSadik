@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *the like of whom has never been reared in all the land? –* — **Al-Fajr (89:8)**
 <!-- quran-verse-end -->
 
 ---
