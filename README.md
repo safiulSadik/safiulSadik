@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and no message of their Sustainer s messages ever reaches them without their turning away from it.* — **Yaseen (36:46)**
+> 📖 *And [there are yet] others-[people whose cases are] deferred until God wills to judge them: He will either chastise them or turn again unto them in His mercy-for God is all-knowing, wise.* — **At-Tawba (9:106)**
 <!-- quran-verse-end -->
 
 ---
