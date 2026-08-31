@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [there are yet] others-[people whose cases are] deferred until God wills to judge them: He will either chastise them or turn again unto them in His mercy-for God is all-knowing, wise.* — **At-Tawba (9:106)**
+> 📖 *[And] he adds: “Would you like to look [and see him]?” –* — **As-Saaffaat (37:54)**
 <!-- quran-verse-end -->
 
 ---
