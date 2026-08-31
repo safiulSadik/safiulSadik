@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!* — **As-Saff (61:1)**
+> 📖 *and no message of their Sustainer s messages ever reaches them without their turning away from it.* — **Yaseen (36:46)**
 <!-- quran-verse-end -->
 
 ---
