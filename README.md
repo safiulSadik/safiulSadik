@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For He [it is who, after creating the earth,] placed firm mountains on it, [towering] above its surface, and bestowed [so many] blessings on it, and equitably apportioned its means of subsistence to all who would seek it: [and all this He created] in four aeons.* — **Fussilat (41:10)**
+> 📖 *Now had We so willed. We could have [con­tinued as before and] raised up a [separate] warner in every single community:* — **Al-Furqaan (25:51)**
 <!-- quran-verse-end -->
 
 ---
