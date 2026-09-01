@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] he adds: “Would you like to look [and see him]?” –* — **As-Saaffaat (37:54)**
+> 📖 *For He [it is who, after creating the earth,] placed firm mountains on it, [towering] above its surface, and bestowed [so many] blessings on it, and equitably apportioned its means of subsistence to all who would seek it: [and all this He created] in four aeons.* — **Fussilat (41:10)**
 <!-- quran-verse-end -->
 
 ---
