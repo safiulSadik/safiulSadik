@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the inmates of the fire will call out unto the inmates of paradise: "Pour some water upon us, or some of the sustenance [of paradise] which God has provided for you!" [The inmates of paradise] will reply: "Verily, God has denied both to those who have denied the truth -* — **Al-A'raaf (7:50)**
+> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
 <!-- quran-verse-end -->
 
 ---
