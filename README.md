@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.* — **Al-Muzzammil (73:8)**
+> 📖 *"the God of men,* — **An-Naas (114:3)**
 <!-- quran-verse-end -->
 
 ---
