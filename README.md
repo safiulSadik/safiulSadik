@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
+> 📖 *and in which you find all that you may wish to find?* — **Al-Qalam (68:38)**
 <!-- quran-verse-end -->
 
 ---
