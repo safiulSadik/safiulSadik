@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus offering an insight and a reminder unto every human being who willingly turns unto God.* — **Qaaf (50:8)**
+> 📖 *And the inmates of the fire will call out unto the inmates of paradise: "Pour some water upon us, or some of the sustenance [of paradise] which God has provided for you!" [The inmates of paradise] will reply: "Verily, God has denied both to those who have denied the truth -* — **Al-A'raaf (7:50)**
 <!-- quran-verse-end -->
 
 ---
