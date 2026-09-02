@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *and gold [beyond count]. Yet all this would have been nothing but a [brief] enjoyment of life in this world - whereas [happiness in] the life to come awaits the God-conscious with thy Sustainer.* — **Az-Zukhruf (43:35)**
 <!-- quran-verse-end -->
 
 ---
