@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and gold [beyond count]. Yet all this would have been nothing but a [brief] enjoyment of life in this world - whereas [happiness in] the life to come awaits the God-conscious with thy Sustainer.* — **Az-Zukhruf (43:35)**
+> 📖 *thus offering an insight and a reminder unto every human being who willingly turns unto God.* — **Qaaf (50:8)**
 <!-- quran-verse-end -->
 
 ---
