@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night as it veils it darkly!* — **Ash-Shams (91:4)**
+> 📖 *therein to abide beyond the count of time. Verily, with God is a mighty reward!* — **At-Tawba (9:22)**
 <!-- quran-verse-end -->
 
 ---
