@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *HAST THOU, then, ever considered him who turns away [from remembering Us, and cares for no more than the life of this world],* — **An-Najm (53:33)**
 <!-- quran-verse-end -->
 
 ---
