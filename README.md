@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
+> 📖 *And at the sky, how it is raised aloft?* — **Al-Ghaashiya (88:18)**
 <!-- quran-verse-end -->
 
 ---
