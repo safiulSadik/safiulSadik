@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Moses] exclaimed: "That [was the place] which we were seeking!, And the two turned back, retracing their footsetps,* — **Al-Kahf (18:64)**
+> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
 <!-- quran-verse-end -->
 
 ---
