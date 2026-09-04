@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, woe is me! Would that I had not taken so-and-so for a friend!* — **Al-Furqaan (25:28)**
+> 📖 *[Moses] exclaimed: "That [was the place] which we were seeking!, And the two turned back, retracing their footsetps,* — **Al-Kahf (18:64)**
 <!-- quran-verse-end -->
 
 ---
