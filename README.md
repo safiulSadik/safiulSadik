@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Ask them:] “Would you, perchance, after having turned away [from God’s commandment, pre­fer to revert to your old ways, and] spread corruption on earth, and [once again] cut asunder your ties of kinship?”* — **Muhammad (47:22)**
+> 📖 *Oh, woe is me! Would that I had not taken so-and-so for a friend!* — **Al-Furqaan (25:28)**
 <!-- quran-verse-end -->
 
 ---
