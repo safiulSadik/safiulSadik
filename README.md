@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they who have attained to faith, and who have forsaken the domain of evil and are striving hard in God's cause, as well as those who shelter and succour [them]-it is they, they who are truly believers! Forgiveness of sins awaits them, and a most excellent sustenance.* — **Al-Anfaal (8:74)**
+> 📖 *and when all human beings are coupled [with their deeds],* — **At-Takwir (81:7)**
 <!-- quran-verse-end -->
 
 ---
