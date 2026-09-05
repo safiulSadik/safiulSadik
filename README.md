@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *"O my Sustainer! Grant Thy forgiveness unto me and unto my parents, and unto everyone who enters my house as a believer, and unto all believing men and believing women [of later times]; and grant Thou that the doers of evil shall increasingly meet with destruction!"'* — **Nooh (71:28)**
 <!-- quran-verse-end -->
 
 ---
