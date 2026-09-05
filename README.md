@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when all human beings are coupled [with their deeds],* — **At-Takwir (81:7)**
+> 📖 *and those that apportion [the gift of life] at [God’s] behest!* — **Adh-Dhaariyat (51:4)**
 <!-- quran-verse-end -->
 
 ---
