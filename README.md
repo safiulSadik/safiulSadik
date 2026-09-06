@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,* — **Al-Fajr (89:21)**
+> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
 <!-- quran-verse-end -->
 
 ---
