@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *- and then they turned upon one another with mutual reproaches.* — **Al-Qalam (68:30)**
+> 📖 *[But only too often] man destroys himself: how stubbornly does he deny the truth!* — **Abasa (80:17)**
 <!-- quran-verse-end -->
 
 ---
