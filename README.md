@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But only too often] man destroys himself: how stubbornly does he deny the truth!* — **Abasa (80:17)**
+> 📖 *Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,* — **Al-Fajr (89:21)**
 <!-- quran-verse-end -->
 
 ---
