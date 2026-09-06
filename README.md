@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
+> 📖 *and He has made dark its night and brought forth its light of day.* — **An-Naazi'aat (79:29)**
 <!-- quran-verse-end -->
 
 ---
