@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so God has graced us with His favour, and has warded off from us all suffering through the scorching winds [of frustration].* — **At-Tur (52:27)**
+> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
 <!-- quran-verse-end -->
 
 ---
