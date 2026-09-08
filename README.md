@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"O my Sustainer! Grant Thy forgiveness unto me and unto my parents, and unto everyone who enters my house as a believer, and unto all believing men and believing women [of later times]; and grant Thou that the doers of evil shall increasingly meet with destruction!"'* — **Nooh (71:28)**
+> 📖 *[The hypocrites among] the bedouin are more tenacious in [their] refusal to acknowledge the truth and in [their] hypocrisy [than are settled people], and more liable to ignore the ordinances which God has bestowed from on high upon His Apostle - but God is all-knowing, wise.* — **At-Tawba (9:97)**
 <!-- quran-verse-end -->
 
 ---
