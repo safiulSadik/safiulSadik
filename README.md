@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The hypocrites among] the bedouin are more tenacious in [their] refusal to acknowledge the truth and in [their] hypocrisy [than are settled people], and more liable to ignore the ordinances which God has bestowed from on high upon His Apostle - but God is all-knowing, wise.* — **At-Tawba (9:97)**
+> 📖 *O YOU who have attained to faith! Be helpers [in the cause of God - even as Jesus, the son of Mary, said unto the white-garbed ones, "Who will be my helpers in God's cause?" - whereupon the white-garbed [disciples] replied, "We shall be [thy] helpers [in the cause] of God!" And so [it happened that] some of the children of Israel came to believe [in the apostleship of Jesus], whereas others denied the truth. But [now] We have given strength against their foes unto those who have [truly] attained to faith: and they have become the ones that shall prevail.* — **As-Saff (61:14)**
 <!-- quran-verse-end -->
 
 ---
