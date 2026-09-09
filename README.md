@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOUR SUSTAINER is He who causes ships to move onward for you through the sea, so that you might go about in quest of some of His bounty: verily, a dispenser of grace is He unto you.* — **Al-Israa (17:66)**
+> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
 <!-- quran-verse-end -->
 
 ---
