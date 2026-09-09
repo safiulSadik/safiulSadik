@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And [remember:] it was to you that Joseph came aforetime with all evidence of the truth; but you never ceased to throw doubt on all [the messages] that he brought you - so much so that when he died, you said, ‘Never will God send any apostle [even] after him!’ “In this way God lets go astray such as waste their own selves by throwing suspicion [on His revela­tions] –* — **Ghafir (40:34)**
+> 📖 *And if it distress thee that those who deny the truth turn their backs on thee - why, then, if thou art able to go down deep into the earth or to ascend a ladder unto heaven in order to bring them a [yet more convincing] message, [do so;] but [remember that] had God so willed, He would indeed have gathered them all unto [His] guidance. Do not, therefore, allow thyself to ignore [God's ways].* — **Al-An'aam (6:35)**
 <!-- quran-verse-end -->
 
 ---
