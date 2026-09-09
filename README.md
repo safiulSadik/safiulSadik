@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The hypocrites] swear by God that they have said nothing [wrong]; yet most certainly have they uttered a saying which amounts to a denial of the truth, and have [thus] denied the truth after [having professed] their self-surrender to God: for they were aiming at something which was beyond their reach. And they could find no fault [with the Faith] save that God had enriched them and [caused] His Apostle [to enrich them] out of His bounty! Hence, if they repent, it will be for their own good. But if they turn away, God will cause them to suffer grievous suffering in this world and in the life to come, and they will find no helper on earth, and none to give [them] succour.* — **At-Tawba (9:74)**
+> 📖 *“And [remember:] it was to you that Joseph came aforetime with all evidence of the truth; but you never ceased to throw doubt on all [the messages] that he brought you - so much so that when he died, you said, ‘Never will God send any apostle [even] after him!’ “In this way God lets go astray such as waste their own selves by throwing suspicion [on His revela­tions] –* — **Ghafir (40:34)**
 <!-- quran-verse-end -->
 
 ---
