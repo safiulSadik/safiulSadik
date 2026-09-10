@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *and fields of grain, and noble dwellings,* — **Ad-Dukhaan (44:26)**
 <!-- quran-verse-end -->
 
 ---
