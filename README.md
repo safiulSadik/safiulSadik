@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fields of grain, and noble dwellings,* — **Ad-Dukhaan (44:26)**
+> 📖 *And how many a prophet has had to fight [in God's cause], followed by many God-devoted men: and they did not become faint of heart for all that they had to suffer in God's cause, and neither did they weaken, nor did they abase themselves [before the enemy], since God loves those who are patient in adversity;* — **Aal-i-Imraan (3:146)**
 <!-- quran-verse-end -->
 
 ---
