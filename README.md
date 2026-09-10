@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We ransomed him with a tremendous sacrifice,* — **As-Saaffaat (37:107)**
+> 📖 *a warning to mortal man –* — **Al-Muddaththir (74:36)**
 <!-- quran-verse-end -->
 
 ---
