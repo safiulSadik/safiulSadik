@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a warning to mortal man –* — **Al-Muddaththir (74:36)**
+> 📖 *the like of whom has never been reared in all the land? –* — **Al-Fajr (89:8)**
 <!-- quran-verse-end -->
 
 ---
