@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on the Day on which the skies, together with the clouds, shall burst asunder, and the angels are made to descend in a mighty descent –* — **Al-Furqaan (25:25)**
+> 📖 *Hence, [even] if you find no one within [the house], do not enter it until you are given leave; and if you are told, “Turn back,” then turn back. This will be most conducive to your purity; and God has full knowledge of all that you do.* — **An-Noor (24:28)**
 <!-- quran-verse-end -->
 
 ---
