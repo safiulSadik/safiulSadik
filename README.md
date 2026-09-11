@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the like of whom has never been reared in all the land? –* — **Al-Fajr (89:8)**
+> 📖 *THIS IS A MESSAGE unto all mankind. Hence, let them be warned thereby, and let them know that He is the One and Only God; and let those who are endowed with insight take this to heart!* — **Ibrahim (14:52)**
 <!-- quran-verse-end -->
 
 ---
