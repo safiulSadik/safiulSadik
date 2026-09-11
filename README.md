@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THIS IS A MESSAGE unto all mankind. Hence, let them be warned thereby, and let them know that He is the One and Only God; and let those who are endowed with insight take this to heart!* — **Ibrahim (14:52)**
+> 📖 *and obvious to them will have become the evil that they had wrought [in life]: and thus shall they be overwhelmed by the very truth which they were wont to deride.* — **Az-Zumar (39:48)**
 <!-- quran-verse-end -->
 
 ---
