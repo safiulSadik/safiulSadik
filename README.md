@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and obvious to them will have become the evil that they had wrought [in life]: and thus shall they be overwhelmed by the very truth which they were wont to deride.* — **Az-Zumar (39:48)**
+> 📖 *And on the Day on which the skies, together with the clouds, shall burst asunder, and the angels are made to descend in a mighty descent –* — **Al-Furqaan (25:25)**
 <!-- quran-verse-end -->
 
 ---
