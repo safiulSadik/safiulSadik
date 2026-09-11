@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [even] if you find no one within [the house], do not enter it until you are given leave; and if you are told, “Turn back,” then turn back. This will be most conducive to your purity; and God has full knowledge of all that you do.* — **An-Noor (24:28)**
+> 📖 *And what could make thee conceive what hell-fire is?* — **Al-Muddaththir (74:27)**
 <!-- quran-verse-end -->
 
 ---
