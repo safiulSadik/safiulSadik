@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what hell-fire is?* — **Al-Muddaththir (74:27)**
+> 📖 *and cushions ranged,* — **Al-Ghaashiya (88:15)**
 <!-- quran-verse-end -->
 
 ---
