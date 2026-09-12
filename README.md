@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Exclaimed [Lot]: "Behold, these are my guests: so put me not to shame,* — **Al-Hijr (15:68)**
+> 📖 *save what God may will [thee to forget] - for, verily, He [alone] knows all that is open to [man's] perception as well as all that is hidden [from it]* — **Al-A'laa (87:7)**
 <!-- quran-verse-end -->
 
 ---
