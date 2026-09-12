@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save what God may will [thee to forget] - for, verily, He [alone] knows all that is open to [man's] perception as well as all that is hidden [from it]* — **Al-A'laa (87:7)**
+> 📖 *ART THOU NOT aware that God knows all that is in the heavens and all that is on earth? Never can there be a secret confabulation between three persons without His being the fourth of them, nor between five without His being the sixth of them; and neither between less than that, or more, without His being with them wherever they may he. But in the end, on Resurrection Day, He will make them truly understand what they did: for, verily, God has full knowledge of everything.* — **Al-Mujaadila (58:7)**
 <!-- quran-verse-end -->
 
 ---
