@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they are dead, not living, and they do not [even] know when they will be raised from the dead!* — **An-Nahl (16:21)**
+> 📖 *O YOU servants of Mine who have attained to faith! Behold, wide is Mine earth: worship Me, then, Me alone!* — **Al-Ankaboot (29:56)**
 <!-- quran-verse-end -->
 
 ---
