@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is then he who strives after God's goodly acceptance like unto him who has earned the burden of God's condemnation and whose goal is hell? - and how vile a journey's end!* — **Aal-i-Imraan (3:162)**
+> 📖 *If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,* — **At-Taghaabun (64:17)**
 <!-- quran-verse-end -->
 
 ---
