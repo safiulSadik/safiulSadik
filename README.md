@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
+> 📖 *they are dead, not living, and they do not [even] know when they will be raised from the dead!* — **An-Nahl (16:21)**
 <!-- quran-verse-end -->
 
 ---
