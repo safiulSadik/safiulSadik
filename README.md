@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware that God knows all that is in the heavens and all that is on earth? Never can there be a secret confabulation between three persons without His being the fourth of them, nor between five without His being the sixth of them; and neither between less than that, or more, without His being with them wherever they may he. But in the end, on Resurrection Day, He will make them truly understand what they did: for, verily, God has full knowledge of everything.* — **Al-Mujaadila (58:7)**
+> 📖 *Is then he who strives after God's goodly acceptance like unto him who has earned the burden of God's condemnation and whose goal is hell? - and how vile a journey's end!* — **Aal-i-Imraan (3:162)**
 <!-- quran-verse-end -->
 
 ---
