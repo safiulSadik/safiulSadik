@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [thus it is with most men:] when the waves engulf them like shadows [of death], they call unto God, sincere [at that moment] in their faith in Him alone: but as soon as He has brought them safe ashore, some of them stop half-way [between belief and unbelief] Yet none could knowingly reject Our messages unless he be utterly perfidious, ingrate.* — **Luqman (31:32)**
+> 📖 *Say: “Were I to go astray, I would but go astray [due to my own self, and] to the hurt of myself; but if I am on the right path, it is but by virtue of what my Sustainer reveals unto me: for, verily, He is all-hearing, ever-near!”* — **Saba (34:50)**
 <!-- quran-verse-end -->
 
 ---
