@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Were I to go astray, I would but go astray [due to my own self, and] to the hurt of myself; but if I am on the right path, it is but by virtue of what my Sustainer reveals unto me: for, verily, He is all-hearing, ever-near!”* — **Saba (34:50)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
