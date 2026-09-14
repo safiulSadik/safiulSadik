@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *For, this fellow-man of yours is not a madman:* — **At-Takwir (81:22)**
 <!-- quran-verse-end -->
 
 ---
