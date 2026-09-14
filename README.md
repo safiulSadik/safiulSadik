@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
 <!-- quran-verse-end -->
 
 ---
