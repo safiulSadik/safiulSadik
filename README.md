@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
+> 📖 *and that you should worship Me [alone]? This would have been a straight way!* — **Yaseen (36:61)**
 <!-- quran-verse-end -->
 
 ---
