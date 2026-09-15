@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
+> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
 <!-- quran-verse-end -->
 
 ---
