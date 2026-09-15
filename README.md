@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the word was spoken: "O earth, swallow up thy waters! And, O sky, cease [thy rain]!" And the waters sank into the earth, and the will [of God] was done, and the ark came to rest on Mount Judl And the word was spoken: "Away with these evildoing folk!"* — **Hud (11:44)**
+> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
 <!-- quran-verse-end -->
 
 ---
