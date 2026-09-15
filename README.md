@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that you should worship Me [alone]? This would have been a straight way!* — **Yaseen (36:61)**
+> 📖 *and the mountains [its] pegs?* — **An-Naba (78:7)**
 <!-- quran-verse-end -->
 
 ---
