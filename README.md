@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, then, on that Day to all who give the lie to the truth –* — **At-Tur (52:11)**
+> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
 <!-- quran-verse-end -->
 
 ---
