@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
+> 📖 *Woe, then, on that Day to all who give the lie to the truth –* — **At-Tur (52:11)**
 <!-- quran-verse-end -->
 
 ---
