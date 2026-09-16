@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains [its] pegs?* — **An-Naba (78:7)**
+> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
 <!-- quran-verse-end -->
 
 ---
