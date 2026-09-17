@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [thus it is:] whenever We sent a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would declare, “Behold, we deny that there is any truth in [what you claim to be] your message!” –* — **Saba (34:34)**
+> 📖 *O YOU who have attained to faith! If any iniquitous person comes to you with a [slanderous] tale, use your discernment, lest you hurt people unwittingly and afterwards be filled with remorse for what you have done.* — **Al-Hujuraat (49:6)**
 <!-- quran-verse-end -->
 
 ---
