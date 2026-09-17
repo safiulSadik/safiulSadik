@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Not one of the communities that We destroyed in bygone times would ever believe [their prophets]: will these, then, [be more willing to] believe?* — **Al-Anbiyaa (21:6)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
