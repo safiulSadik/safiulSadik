@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *For [thus it is:] whenever We sent a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would declare, “Behold, we deny that there is any truth in [what you claim to be] your message!” –* — **Saba (34:34)**
 <!-- quran-verse-end -->
 
 ---
