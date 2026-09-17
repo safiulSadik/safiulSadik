@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *guiding towards consciousness of what is right; and so We have come to believe in it. And we shall never ascribe divinity to anyone beside our Sustainer,* — **Al-Jinn (72:2)**
+> 📖 *ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,* — **Ibrahim (14:24)**
 <!-- quran-verse-end -->
 
 ---
