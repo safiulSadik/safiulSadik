@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "May God preserve us from [the sin of] detaining any other than him with whom we have found our property-for then, behold, we would indeed be evildoers!"* — **Yusuf (12:79)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
