@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on that Day We shall gather from within every community a host of those who gave the lie to Our messages; and they will be grouped [according to the gravity of their sins]* — **An-Naml (27:83)**
+> 📖 *why do they not [demand of the accusers that they] their allegation? for, if they do not produce such wit­nesses, it is those [accusers] who, in the sight of God, are liars indeed!* — **An-Noor (24:13)**
 <!-- quran-verse-end -->
 
 ---
