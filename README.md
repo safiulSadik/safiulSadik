@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sus­tainer’s powers can you disavow?* — **Ar-Rahmaan (55:67)**
+> 📖 *And they [who now deny the truth - they, too,] have but to wait for one single blast [of punishment to overtake them]: it shall not be delayed a whit.* — **Saad (38:15)**
 <!-- quran-verse-end -->
 
 ---
