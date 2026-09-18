@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *Which, then, of your Sus­tainer’s powers can you disavow?* — **Ar-Rahmaan (55:67)**
 <!-- quran-verse-end -->
 
 ---
