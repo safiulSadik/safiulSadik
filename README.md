@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they [who now deny the truth - they, too,] have but to wait for one single blast [of punishment to overtake them]: it shall not be delayed a whit.* — **Saad (38:15)**
+> 📖 *And on that Day We shall gather from within every community a host of those who gave the lie to Our messages; and they will be grouped [according to the gravity of their sins]* — **An-Naml (27:83)**
 <!-- quran-verse-end -->
 
 ---
