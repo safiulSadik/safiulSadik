@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *And, verily, thou callest them onto a straight way –* — **Al-Muminoon (23:73)**
 <!-- quran-verse-end -->
 
 ---
