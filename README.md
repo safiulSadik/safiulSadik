@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *why do they not [demand of the accusers that they] their allegation? for, if they do not produce such wit­nesses, it is those [accusers] who, in the sight of God, are liars indeed!* — **An-Noor (24:13)**
+> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
 <!-- quran-verse-end -->
 
 ---
