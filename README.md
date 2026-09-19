@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
+> 📖 *Verily, We have created man into [a life of] pain, toil and trial.* — **Al-Balad (90:4)**
 <!-- quran-verse-end -->
 
 ---
