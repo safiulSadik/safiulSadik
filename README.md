@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GOD has indeed heard the words of her who pleads with thee concerning her husband, and complains Unto God. And God does hear what you both have to say: verily, God is all-hearing, all-seeing.* — **Al-Mujaadila (58:1)**
+> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
 <!-- quran-verse-end -->
 
 ---
