@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, thou callest them onto a straight way –* — **Al-Muminoon (23:73)**
+> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
 <!-- quran-verse-end -->
 
 ---
