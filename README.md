@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We have created man into [a life of] pain, toil and trial.* — **Al-Balad (90:4)**
+> 📖 *GOD has indeed heard the words of her who pleads with thee concerning her husband, and complains Unto God. And God does hear what you both have to say: verily, God is all-hearing, all-seeing.* — **Al-Mujaadila (58:1)**
 <!-- quran-verse-end -->
 
 ---
