@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day We shall roll up the skies as written scrolls are rolled up; [and] as We brought into being the first creation, so We shall bring it forth anew a promise which We have willed upon Our­selves: for, behold, We are able to do [all things]!* — **Al-Anbiyaa (21:104)**
+> 📖 *and, verily, it is a guidance and a grace unto all who believe [in it].* — **An-Naml (27:77)**
 <!-- quran-verse-end -->
 
 ---
