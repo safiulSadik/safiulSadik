@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
+> 📖 *[two gardens] of many wondrous hues.* — **Ar-Rahmaan (55:48)**
 <!-- quran-verse-end -->
 
 ---
