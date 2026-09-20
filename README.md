@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, verily, it is a guidance and a grace unto all who believe [in it].* — **An-Naml (27:77)**
+> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
 <!-- quran-verse-end -->
 
 ---
