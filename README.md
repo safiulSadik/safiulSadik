@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *But [nay,] they take to worshipping deities other than God, [hoping] to be succoured [by them, and not knowing that]* — **Yaseen (36:74)**
 <!-- quran-verse-end -->
 
 ---
