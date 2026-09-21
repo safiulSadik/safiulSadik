@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
+> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
 <!-- quran-verse-end -->
 
 ---
