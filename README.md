@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas all who strive against Our messages, seeking to defeat their purpose, shall be given over to suffering.* — **Saba (34:38)**
+> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
 <!-- quran-verse-end -->
 
 ---
