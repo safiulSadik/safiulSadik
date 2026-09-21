@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [nay,] they take to worshipping deities other than God, [hoping] to be succoured [by them, and not knowing that]* — **Yaseen (36:74)**
+> 📖 *whereas all who strive against Our messages, seeking to defeat their purpose, shall be given over to suffering.* — **Saba (34:38)**
 <!-- quran-verse-end -->
 
 ---
