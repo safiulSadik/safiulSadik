@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
+> 📖 *He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.* — **Al-Mulk (67:2)**
 <!-- quran-verse-end -->
 
 ---
