@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.* — **Al-Mulk (67:2)**
+> 📖 *But it was Our will to bestow Our favour upon those [very people] who were deemed [so] utterly low in the land, and to make them forerunners in faith. and to make them heirs [to Pharaoh’s glory],* — **Al-Qasas (28:5)**
 <!-- quran-verse-end -->
 
 ---
