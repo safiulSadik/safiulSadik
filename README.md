@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *He [it is who] has created the skies without any supports that you could see, and has placed firm mountains upon the earth, lest it sway with you, and has caused all manner of living creatures to multiply thereon. And We send down water from the skies, and thus We cause every noble kind [of life] to grow on earth.* — **Luqman (31:10)**
 <!-- quran-verse-end -->
 
 ---
