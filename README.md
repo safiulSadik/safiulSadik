@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
+> 📖 *O YOU who have attained to faith! What is amiss with you that, when you are called upon, "Go forth to war in God's cause," you cling heavily to the earth? Would you content yourselves with [the comforts of] this worldly life in preference to [the good of] the life to come? But the enjoyment of life in this world is but a paltry thing when compared with the life to come!* — **At-Tawba (9:38)**
 <!-- quran-verse-end -->
 
 ---
