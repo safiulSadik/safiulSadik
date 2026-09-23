@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! What is amiss with you that, when you are called upon, "Go forth to war in God's cause," you cling heavily to the earth? Would you content yourselves with [the comforts of] this worldly life in preference to [the good of] the life to come? But the enjoyment of life in this world is but a paltry thing when compared with the life to come!* — **At-Tawba (9:38)**
+> 📖 *Now among those [hapless sinners] are such as [pretend to] listen to thee, [O Muhammad,] and then, as soon as they leave thy presence, speak [with scorn] unto those who have understood [thy mes­sage]: “What is it that he has said just now?” It is such as these whose hearts God has sealed because they [always] followed but their own lusts* — **Muhammad (47:16)**
 <!-- quran-verse-end -->
 
 ---
