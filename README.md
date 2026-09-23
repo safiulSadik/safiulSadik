@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent unto the unlettered people an apostle from among themselves, to convey unto them His messages, and to cause them to grow in purity, and to impart unto them the divine writ as well as wisdom - whereas before that they were indeed, most obviously, lost in error* — **Al-Jumu'a (62:2)**
+> 📖 *O YOU who have attained to faith! Be not like those [children of Israel] who gave offence to Moses, and [remember that] God showed him to be innocent of whatever they alleged [against him or demanded of him]: for of great honour was he in the sight of God.* — **Al-Ahzaab (33:69)**
 <!-- quran-verse-end -->
 
 ---
