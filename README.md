@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why - on him alone from among all of us should a [divine] reminder have been bestowed? Nay, but he is a boastful liar!”* — **Al-Qamar (54:25)**
+> 📖 *VERILY, all this is an admonition: whoever, then, so wills, may unto his Sustainer find a way.* — **Al-Insaan (76:29)**
 <!-- quran-verse-end -->
 
 ---
