@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, all this is an admonition: whoever, then, so wills, may unto his Sustainer find a way.* — **Al-Insaan (76:29)**
+> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
 <!-- quran-verse-end -->
 
 ---
