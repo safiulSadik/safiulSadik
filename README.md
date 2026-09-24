@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
+> 📖 *But leave them alone, lost in their ignorance, until a [future] time.* — **Al-Muminoon (23:54)**
 <!-- quran-verse-end -->
 
 ---
