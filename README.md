@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [thus] shall We make easy for thee the path towards [ultimate] ease.* — **Al-A'laa (87:8)**
+> 📖 *Why - on him alone from among all of us should a [divine] reminder have been bestowed? Nay, but he is a boastful liar!”* — **Al-Qamar (54:25)**
 <!-- quran-verse-end -->
 
 ---
