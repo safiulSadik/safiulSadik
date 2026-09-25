@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
 <!-- quran-verse-end -->
 
 ---
