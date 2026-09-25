@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you have been praying for victory, [O believers] - victory has now indeed come unto you. And if you abstain [from sinning], it will be for your own good; but if you revert to it, We shall revoke [Our promise of aid] - and never will your community be of any avail to you, however great its numbers: for, behold, God is [only] with those who believe!* — **Al-Anfaal (8:19)**
+> 📖 *and, behold I preached to them in public; and I spoke to them secretly, in private;* — **Nooh (71:9)**
 <!-- quran-verse-end -->
 
 ---
