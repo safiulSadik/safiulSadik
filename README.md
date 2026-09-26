@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O believer,] He who has laid down this Qur’an in plain terms, making it binding on thee, will assuredly bring thee back [from death] to a life renewed. Say [unto those who reject the truth]: My Sus­tainer knows best, as to who is right-guided and who is obviously lost in error!”* — **Al-Qasas (28:85)**
+> 📖 *Behold, [only] those who attain to faith and do righteous deeds and humble themselves before their Sustainer - [only] they are destined for paradise, and there shall they abide.* — **Hud (11:23)**
 <!-- quran-verse-end -->
 
 ---
