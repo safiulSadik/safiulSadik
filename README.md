@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [only] those who attain to faith and do righteous deeds and humble themselves before their Sustainer - [only] they are destined for paradise, and there shall they abide.* — **Hud (11:23)**
+> 📖 *And [remember the time] when your Sustainer made [this promise] known: 'If you are grateful [to Me], I shall most certainly give you more and more; but if you are ungrateful, verily, My chastisement will be severe indeed!"'* — **Ibrahim (14:7)**
 <!-- quran-verse-end -->
 
 ---
