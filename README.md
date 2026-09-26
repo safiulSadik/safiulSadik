@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold I preached to them in public; and I spoke to them secretly, in private;* — **Nooh (71:9)**
+> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
 <!-- quran-verse-end -->
 
 ---
