@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *NOW [thus it is:] when affliction befalls men, they cry out unto their Sustainer, turning unto Him [for help]; but as soon as He lets them taste of His grace, lo! some of them [begin to] ascribe to other powers a share in their Sustainer’s divinity,* — **Ar-Room (30:33)**
 <!-- quran-verse-end -->
 
 ---
