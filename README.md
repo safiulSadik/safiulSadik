@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember the time] when your Sustainer made [this promise] known: 'If you are grateful [to Me], I shall most certainly give you more and more; but if you are ungrateful, verily, My chastisement will be severe indeed!"'* — **Ibrahim (14:7)**
+> 📖 *or the feeding, upon a day of [one's own] hunger,* — **Al-Balad (90:14)**
 <!-- quran-verse-end -->
 
 ---
