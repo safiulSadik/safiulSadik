@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,* — **Al-Burooj (85:8)**
+> 📖 *and that very thought which you thought about your Sustainer has brought you to perdition, and so now you find yourselves among the lost!”* — **Fussilat (41:23)**
 <!-- quran-verse-end -->
 
 ---
