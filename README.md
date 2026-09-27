@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or the feeding, upon a day of [one's own] hunger,* — **Al-Balad (90:14)**
+> 📖 *whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,* — **Al-Burooj (85:8)**
 <!-- quran-verse-end -->
 
 ---
