@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] behold, today I have rewarded them for their patience in adversity: verily, it is they, they who have achieved a triumph!”* — **Al-Muminoon (23:111)**
+> 📖 *as well as [in] Manat, the third and last [of this triad]?* — **An-Najm (53:20)**
 <!-- quran-verse-end -->
 
 ---
