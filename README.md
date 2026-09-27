@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that very thought which you thought about your Sustainer has brought you to perdition, and so now you find yourselves among the lost!”* — **Fussilat (41:23)**
+> 📖 *[But,] behold, today I have rewarded them for their patience in adversity: verily, it is they, they who have achieved a triumph!”* — **Al-Muminoon (23:111)**
 <!-- quran-verse-end -->
 
 ---
