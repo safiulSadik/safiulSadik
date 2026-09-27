@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as well as [in] Manat, the third and last [of this triad]?* — **An-Najm (53:20)**
+> 📖 *and would indeed have cut his life-vein.* — **Al-Haaqqa (69:46)**
 <!-- quran-verse-end -->
 
 ---
