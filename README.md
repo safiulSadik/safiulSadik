@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [on that Day,] paradise will be brought within sight of the God-conscious,* — **Ash-Shu'araa (26:90)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
