@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
+> 📖 *For, [on that Day,] paradise will be brought within sight of the God-conscious,* — **Ash-Shu'araa (26:90)**
 <!-- quran-verse-end -->
 
 ---
