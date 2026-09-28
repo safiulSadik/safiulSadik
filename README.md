@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and would indeed have cut his life-vein.* — **Al-Haaqqa (69:46)**
+> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
 <!-- quran-verse-end -->
 
 ---
