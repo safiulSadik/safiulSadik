@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] there it is: any and all human beings, however [strongly] leagued together, are bound to suffer defeat [whenever they refuse to accept the truth].* — **Saad (38:11)**
+> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
 <!-- quran-verse-end -->
 
 ---
