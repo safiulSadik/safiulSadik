@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *behold, this [divine writ] is indeed the [inspired] word of a noble apostle,* — **At-Takwir (81:19)**
 <!-- quran-verse-end -->
 
 ---
