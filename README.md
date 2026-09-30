@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,* — **Al-Fajr (89:21)**
+> 📖 *guiding towards consciousness of what is right; and so We have come to believe in it. And we shall never ascribe divinity to anyone beside our Sustainer,* — **Al-Jinn (72:2)**
 <!-- quran-verse-end -->
 
 ---
