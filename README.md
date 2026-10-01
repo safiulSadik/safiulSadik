@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
+> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
 <!-- quran-verse-end -->
 
 ---
