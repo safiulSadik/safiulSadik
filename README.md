@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
+> 📖 *and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”* — **Saba (34:29)**
 <!-- quran-verse-end -->
 
 ---
