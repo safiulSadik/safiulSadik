@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *NOW WHEN you meet [in war] those who are bent on denying the truth, smite their necks until you overcome them fully, and then tighten their bonds; but thereafter [set them free,] either by an act of grace or against ransom, so that the burden of war may be lifted: thus [shall it be]. And [know that] had God so willed, He could indeed punish them [Himself]; but [He wills you to struggle] so as to test you [all] by means of one another. And as for those who are slain in God’s cause, never will He let their deeds go to waste:* — **Muhammad (47:4)**
 <!-- quran-verse-end -->
 
 ---
