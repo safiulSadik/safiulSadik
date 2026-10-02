@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
+> 📖 *And God would never-after having invited them to His guidance -condemn people for going astray ere He has made [entirely] clear unto them of what they should beware. Verily, God has full knowledge of everything.* — **At-Tawba (9:115)**
 <!-- quran-verse-end -->
 
 ---
