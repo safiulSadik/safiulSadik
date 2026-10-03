@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, nearness to Us awaits him [in the life to come], and the most beauteous of all goals!* — **Saad (38:40)**
+> 📖 *REMAIN, then, [O believer,] patient in adversity, just as all of the apostles, endowed with firmness of heart, bore themselves with patience. And do not ask for a speedy doom of those [who still deny the truth]: on the Day when they see [the fulfillment of] what they were promised, [it will seem to them] as though they had dwelt [on earth] no longer than one hour of [an earthly] day! [This is Our] message. Will, then, any be [really] destroyed save iniquitous folk?”* — **Al-Ahqaf (46:35)**
 <!-- quran-verse-end -->
 
 ---
