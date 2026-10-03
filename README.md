@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And God would never-after having invited them to His guidance -condemn people for going astray ere He has made [entirely] clear unto them of what they should beware. Verily, God has full knowledge of everything.* — **At-Tawba (9:115)**
+> 📖 *And let not their worldly goods and [the happiness which they may derive from] their children excite thy admiration: God but wants to chastise them by these means in [the life of] this world, and [to cause] their souls to depart while they are [still] denying the truth.* — **At-Tawba (9:85)**
 <!-- quran-verse-end -->
 
 ---
