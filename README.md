@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And let not their worldly goods and [the happiness which they may derive from] their children excite thy admiration: God but wants to chastise them by these means in [the life of] this world, and [to cause] their souls to depart while they are [still] denying the truth.* — **At-Tawba (9:85)**
+> 📖 *God, save whom there is no deity - the Sustainer, in awesome almightiness enthroned!”* — **An-Naml (27:26)**
 <!-- quran-verse-end -->
 
 ---
