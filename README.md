@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God, save whom there is no deity - the Sustainer, in awesome almightiness enthroned!”* — **An-Naml (27:26)**
+> 📖 *And, verily, nearness to Us awaits him [in the life to come], and the most beauteous of all goals!* — **Saad (38:40)**
 <!-- quran-verse-end -->
 
 ---
