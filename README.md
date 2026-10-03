@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God-there is no deity save Him; His [alone] are the attributes of perfection!* — **Taa-Haa (20:8)**
+> 📖 *But wouldst thou, perhaps, torment thyself to death with grief over them if they are not willing to believe in this message?* — **Al-Kahf (18:6)**
 <!-- quran-verse-end -->
 
 ---
