@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
+> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
 <!-- quran-verse-end -->
 
 ---
