@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But wouldst thou, perhaps, torment thyself to death with grief over them if they are not willing to believe in this message?* — **Al-Kahf (18:6)**
+> 📖 *Or have you, perchance, a [special] divine writ which you study,* — **Al-Qalam (68:37)**
 <!-- quran-verse-end -->
 
 ---
