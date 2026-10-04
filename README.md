@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or have you, perchance, a [special] divine writ which you study,* — **Al-Qalam (68:37)**
+> 📖 *So they debated among themselves as to what to do; but they kept their counsel secret,* — **Taa-Haa (20:62)**
 <!-- quran-verse-end -->
 
 ---
