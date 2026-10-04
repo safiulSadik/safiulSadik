@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *So they debated among themselves as to what to do; but they kept their counsel secret,* — **Taa-Haa (20:62)**
+> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
 <!-- quran-verse-end -->
 
 ---
