@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and even demanded that he give up his guests [to them]: whereupon We deprived them of their sight [and thus told them, as it were]: “Taste, then, the suffering which I inflict when My warnings are disregarded!”* — **Al-Qamar (54:37)**
+> 📖 *and that, verily, Our hosts - they indeed - would [in the end] be victorious!* — **As-Saaffaat (37:173)**
 <!-- quran-verse-end -->
 
 ---
