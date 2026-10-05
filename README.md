@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that, verily, Our hosts - they indeed - would [in the end] be victorious!* — **As-Saaffaat (37:173)**
+> 📖 *If, however, [the debtor] is in straitened circumstances, [grant him] a delay until a time of ease; and it would be for your own good -if you but knew it -to remit [the debt entirely] by way of charity.* — **Al-Baqara (2:280)**
 <!-- quran-verse-end -->
 
 ---
