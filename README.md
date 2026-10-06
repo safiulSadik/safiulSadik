@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
+> 📖 *this land in which thou art free to dwell -* — **Al-Balad (90:2)**
 <!-- quran-verse-end -->
 
 ---
