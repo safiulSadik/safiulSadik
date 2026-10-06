@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If, however, [the debtor] is in straitened circumstances, [grant him] a delay until a time of ease; and it would be for your own good -if you but knew it -to remit [the debt entirely] by way of charity.* — **Al-Baqara (2:280)**
+> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
 <!-- quran-verse-end -->
 
 ---
