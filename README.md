@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but this [divine writ which they reject] is a discourse sublime,* — **Al-Burooj (85:21)**
+> 📖 *[Hence,] O you who have attained to faith, when you do hold secret confabulations, do not conspire with one another with a view to sinful doings, and aggressive conduct, and disobedience to the Apostle, but [rather] hold counsel in the cause of virtue and God-consciousness: and [always] remain conscious of God, unto whom you all shall be gathered.* — **Al-Mujaadila (58:9)**
 <!-- quran-verse-end -->
 
 ---
