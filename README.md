@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *Whither, then, will you go?* — **At-Takwir (81:26)**
 <!-- quran-verse-end -->
 
 ---
