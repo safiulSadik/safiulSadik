@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whither, then, will you go?* — **At-Takwir (81:26)**
+> 📖 *Nay, but this [divine writ which they reject] is a discourse sublime,* — **Al-Burooj (85:21)**
 <!-- quran-verse-end -->
 
 ---
