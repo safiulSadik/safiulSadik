@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:30)**
+> 📖 *in mind will keep it he who stands in awe [of God],* — **Al-A'laa (87:10)**
 <!-- quran-verse-end -->
 
 ---
