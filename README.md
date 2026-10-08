@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "We miss the King's goblet; and he who produces it shall receive a camel-load [of grain as reward]!" And [the herald added:] "I pledge myself to this _ [promise]!"* — **Yusuf (12:72)**
+> 📖 *Consider the creation of the male and the female!* — **Al-Lail (92:3)**
 <!-- quran-verse-end -->
 
 ---
