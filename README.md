@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Most Gracious, established on the throne of His almightiness?* — **Taa-Haa (20:5)**
+> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
 <!-- quran-verse-end -->
 
 ---
