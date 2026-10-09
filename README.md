@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *THUS DO WE relate unto thee some of the stories of what happened in the past; and [thus] have We vouchsafed unto thee, out of Our grace, a reminder.* — **Taa-Haa (20:99)**
 <!-- quran-verse-end -->
 
 ---
