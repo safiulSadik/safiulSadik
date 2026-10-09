@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THUS DO WE relate unto thee some of the stories of what happened in the past; and [thus] have We vouchsafed unto thee, out of Our grace, a reminder.* — **Taa-Haa (20:99)**
+> 📖 *[Know this,] so that you may not despair over whatever [good] has escaped you nor exult [unduly] over whatever [good] has come to you: for, God does not love any of those who, out of self-conceit, act in a boastful manner –* — **Al-Hadid (57:23)**
 <!-- quran-verse-end -->
 
 ---
