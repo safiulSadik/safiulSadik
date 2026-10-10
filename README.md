@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To this end,] God sets forth a parable: A man who has for his masters several partners, [all of them] at variance with one another, and a man depending wholly on one person: can these two be deemed equal as regards their condition? [Nay,] all praise is due to God [alone]: but most of them do not understand this.* — **Az-Zumar (39:29)**
+> 📖 *But then as soon as he was about to lay violent hands on the man who was their [common] enemy, the latter exclaimed: “O Moses, dost thou intend to slay me as thou didst slay another man yesterday? Thy sole aim is to become a tyrant in this land, for thou dost not care to be of those who would set things to rights!”* — **Al-Qasas (28:19)**
 <!-- quran-verse-end -->
 
 ---
