@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O followers of the Bible! You have no valid ground for your beliefs -unless you [truly] observe the Torah and the Gospel, and all that has been bestowed from on high upon you by your Sustainer!" Yet all that has been bestowed from on high upon thee [O Prophet] by thy Sustainer is bound to make many of them yet more stubborn in their overweening arrogance and in their denial of the truth. But sorrow not over people who deny the truth:* — **Al-Maaida (5:68)**
+> 📖 *[To this end,] God sets forth a parable: A man who has for his masters several partners, [all of them] at variance with one another, and a man depending wholly on one person: can these two be deemed equal as regards their condition? [Nay,] all praise is due to God [alone]: but most of them do not understand this.* — **Az-Zumar (39:29)**
 <!-- quran-verse-end -->
 
 ---
