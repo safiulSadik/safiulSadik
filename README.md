@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
+> 📖 *Say: "O followers of the Bible! You have no valid ground for your beliefs -unless you [truly] observe the Torah and the Gospel, and all that has been bestowed from on high upon you by your Sustainer!" Yet all that has been bestowed from on high upon thee [O Prophet] by thy Sustainer is bound to make many of them yet more stubborn in their overweening arrogance and in their denial of the truth. But sorrow not over people who deny the truth:* — **Al-Maaida (5:68)**
 <!-- quran-verse-end -->
 
 ---
