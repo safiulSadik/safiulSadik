@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In such a paradise will they dwell,] reclining upon meadows green and carpets rich in beauty.* — **Ar-Rahmaan (55:76)**
+> 📖 *And [thus it is:] when we let men taste [Our] grace, they rejoice in it; but if evil befalls them as an outcome of what their own hands have wrought lo! they lose all hope!* — **Ar-Room (30:36)**
 <!-- quran-verse-end -->
 
 ---
