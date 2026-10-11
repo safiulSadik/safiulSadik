@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
+> 📖 *Does he, then, think that no one sees him?* — **Al-Balad (90:7)**
 <!-- quran-verse-end -->
 
 ---
