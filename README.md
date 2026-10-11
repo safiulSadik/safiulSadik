@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that God might show His forgiveness of all thy faults, past as well as future, and [thus] bestow upon thee the full measure of His blessings, and guide thee on a straight way,* — **Al-Fath (48:2)**
+> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
 <!-- quran-verse-end -->
 
 ---
