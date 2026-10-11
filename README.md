@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one sees him?* — **Al-Balad (90:7)**
+> 📖 *[In such a paradise will they dwell,] reclining upon meadows green and carpets rich in beauty.* — **Ar-Rahmaan (55:76)**
 <!-- quran-verse-end -->
 
 ---
