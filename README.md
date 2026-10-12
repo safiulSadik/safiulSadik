@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All who shall turn away from it will, verily, bear a [heavy] burden on the Day of Resurrection:* — **Taa-Haa (20:100)**
+> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
 <!-- quran-verse-end -->
 
 ---
