@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, those who contend against God and His Apostle shall be brought low even as those [evildoers] who lived before them were brought low after We had bestowed [on them] clear messages from on high. And [so,] for those who deny the truth there will be shameful suffering in store* — **Al-Mujaadila (58:5)**
+> 📖 *All who shall turn away from it will, verily, bear a [heavy] burden on the Day of Resurrection:* — **Taa-Haa (20:100)**
 <!-- quran-verse-end -->
 
 ---
