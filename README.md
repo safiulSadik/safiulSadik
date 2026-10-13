@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[everyone] who stood in awe of the Most Gracious although He is beyond the reach of human perception, and who has come [unto Him] with a heart full of contrition.* — **Qaaf (50:33)**
+> 📖 *[Whereupon Iblis] said: "O my Sustainer! Since Thou hast thwarted me, I shall indeed make [all that is evil] on earth seem goodly to them, and shall most certainly beguile them-into grievous error -* — **Al-Hijr (15:39)**
 <!-- quran-verse-end -->
 
 ---
