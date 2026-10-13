@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
+> 📖 *Tell the believing men to lower their gaze and to be mindful of their chastity: this will be most con­ducive to their purity – [and,] verily, God is aware of all that they do.* — **An-Noor (24:30)**
 <!-- quran-verse-end -->
 
 ---
