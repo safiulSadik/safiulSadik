@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Tell the believing men to lower their gaze and to be mindful of their chastity: this will be most con­ducive to their purity – [and,] verily, God is aware of all that they do.* — **An-Noor (24:30)**
+> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
 <!-- quran-verse-end -->
 
 ---
