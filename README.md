@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O our Sustainer, relieve us of suffering, for, verily, we [now] believe [in Thee]!”* — **Ad-Dukhaan (44:12)**
+> 📖 *Are they not aware that it is We who drive the rain onto dry land devoid of herbage, and thereby bring forth herbage of which their cattle and they themselves do eat? Can they not, then, see [the truth of resurrection]?* — **As-Sajda (32:27)**
 <!-- quran-verse-end -->
 
 ---
