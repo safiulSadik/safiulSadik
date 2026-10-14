@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *O our Sustainer, relieve us of suffering, for, verily, we [now] believe [in Thee]!”* — **Ad-Dukhaan (44:12)**
 <!-- quran-verse-end -->
 
 ---
