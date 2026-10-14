@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] who are im­pelled to rise from their beds [at night] to call out to their Sustainer in fear and hope; and who spend on others out of what We provide for them as sus­tenance.* — **As-Sajda (32:16)**
+> 📖 *And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.* — **Al-Fath (48:24)**
 <!-- quran-verse-end -->
 
 ---
