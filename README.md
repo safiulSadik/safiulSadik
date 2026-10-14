@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they not aware that it is We who drive the rain onto dry land devoid of herbage, and thereby bring forth herbage of which their cattle and they themselves do eat? Can they not, then, see [the truth of resurrection]?* — **As-Sajda (32:27)**
+> 📖 *[and] who are im­pelled to rise from their beds [at night] to call out to their Sustainer in fear and hope; and who spend on others out of what We provide for them as sus­tenance.* — **As-Sajda (32:16)**
 <!-- quran-verse-end -->
 
 ---
