@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Whereupon Iblis] said: "O my Sustainer! Since Thou hast thwarted me, I shall indeed make [all that is evil] on earth seem goodly to them, and shall most certainly beguile them-into grievous error -* — **Al-Hijr (15:39)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
