@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
+> 📖 *And so, that which must come to pass will on that day have come to pass;* — **Al-Haaqqa (69:15)**
 <!-- quran-verse-end -->
 
 ---
