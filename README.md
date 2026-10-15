@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, that which must come to pass will on that day have come to pass;* — **Al-Haaqqa (69:15)**
+> 📖 *to him didst thou give thy whole attention,* — **Abasa (80:6)**
 <!-- quran-verse-end -->
 
 ---
