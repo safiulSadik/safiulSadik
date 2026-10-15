@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [know] that this is the way leading straight unto Me: follow it, then, and follow not other ways, lest they cause you to deviate from His way. [All] this has He enjoined upon you, so that you might remain conscious of Him.* — **Al-An'aam (6:153)**
+> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
 <!-- quran-verse-end -->
 
 ---
