@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.* — **Al-Fath (48:24)**
+> 📖 *And [know] that this is the way leading straight unto Me: follow it, then, and follow not other ways, lest they cause you to deviate from His way. [All] this has He enjoined upon you, so that you might remain conscious of Him.* — **Al-An'aam (6:153)**
 <!-- quran-verse-end -->
 
 ---
