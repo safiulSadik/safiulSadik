@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *and who guard their prayers [from all worldly intent].* — **Al-Ma'aarij (70:34)**
 <!-- quran-verse-end -->
 
 ---
