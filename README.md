@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!* — **Al-Hashr (59:19)**
+> 📖 *And so, because of their sins, they were drowned [in the great flood], and were doomed to suffer the fire [of the hereafter]; and they found none who could succour them against God.* — **Nooh (71:25)**
 <!-- quran-verse-end -->
 
 ---
