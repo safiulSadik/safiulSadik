@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, because of their sins, they were drowned [in the great flood], and were doomed to suffer the fire [of the hereafter]; and they found none who could succour them against God.* — **Nooh (71:25)**
+> 📖 *"'Do you not see how God has created seven heavens in full harmony with one another,* — **Nooh (71:15)**
 <!-- quran-verse-end -->
 
 ---
