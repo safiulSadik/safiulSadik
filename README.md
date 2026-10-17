@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”* — **Al-Hashr (59:16)**
+> 📖 *And who could be more wicked than he to whom his Sustainer’s messages are conveyed and who thereupon turns away from them? Verily, We shall inflict Our retribution on those who are [thus] lost in sin!* — **As-Sajda (32:22)**
 <!-- quran-verse-end -->
 
 ---
