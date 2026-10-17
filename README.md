@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'What is amiss with you that you cannot look forward to God's majesty,* — **Nooh (71:13)**
+> 📖 *But they summoned their [boldest] companion, and he ventured [upon the evil deed], and cruelly slaughtered [the animal]:* — **Al-Qamar (54:29)**
 <!-- quran-verse-end -->
 
 ---
