@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among his wonders is the creation of the heavens and the earth, and the diversity of your tongues and colours: for in this, behold, there are messages indeed for all who are possessed of [innate] knowledge!* — **Ar-Room (30:22)**
+> 📖 *the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”* — **Al-Hashr (59:16)**
 <!-- quran-verse-end -->
 
 ---
