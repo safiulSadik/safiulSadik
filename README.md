@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than he to whom his Sustainer’s messages are conveyed and who thereupon turns away from them? Verily, We shall inflict Our retribution on those who are [thus] lost in sin!* — **As-Sajda (32:22)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:71)**
 <!-- quran-verse-end -->
 
 ---
