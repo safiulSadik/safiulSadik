@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *Can you, then, ever feel sure that He will not cause a tract of dry land to swallow you up, or let loose upon you a deadly storm-wind, whereupon you would find none to be your protector?* — **Al-Israa (17:68)**
 <!-- quran-verse-end -->
 
 ---
