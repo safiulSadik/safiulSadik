@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].* — **Al-Munaafiqoon (63:3)**
+> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
 <!-- quran-verse-end -->
 
 ---
