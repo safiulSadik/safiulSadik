@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Can you, then, ever feel sure that He will not cause a tract of dry land to swallow you up, or let loose upon you a deadly storm-wind, whereupon you would find none to be your protector?* — **Al-Israa (17:68)**
+> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
 <!-- quran-verse-end -->
 
 ---
