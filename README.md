@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
+> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
 <!-- quran-verse-end -->
 
 ---
