@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
