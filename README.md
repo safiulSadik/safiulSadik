@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
+> 📖 *Verily, God has rejected the deniers of the truth, and has readied for them a blazing fire,* — **Al-Ahzaab (33:64)**
 <!-- quran-verse-end -->
 
 ---
