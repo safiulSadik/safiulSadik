@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God has rejected the deniers of the truth, and has readied for them a blazing fire,* — **Al-Ahzaab (33:64)**
+> 📖 *Has he, perchance, attained to a realm which is beyond the reach of a created being's perception? or has he concluded a covenant with the Most Gracious?* — **Maryam (19:78)**
 <!-- quran-verse-end -->
 
 ---
