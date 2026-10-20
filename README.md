@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the heat of a blazing fire!* — **Al-Waaqia (56:94)**
+> 📖 *"Are these deniers of the truth being [thus] requited for [aught but] what they were wont to do?"* — **Al-Mutaffifin (83:36)**
 <!-- quran-verse-end -->
 
 ---
