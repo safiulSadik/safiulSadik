@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and give no thought to the life to come [and to Judgment Day]!* — **Al-Qiyaama (75:21)**
+> 📖 *And the earth will shine bright with her Sus­tainer’s light. And the record [of everyone’s deeds] will be laid bare, and all the prophets will be brought forward, and all [other] witnesses; and judgment will be passed on them all in justice. And they will not be wronged,* — **Az-Zumar (39:69)**
 <!-- quran-verse-end -->
 
 ---
