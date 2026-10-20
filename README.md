@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, he had no power at all over them: [for if We allow him to tempt man,] it is only to the end that We might make a clear distinction between those who [truly] believe in the life to come and those who are in doubt thereof: for thy Sustainer watches over all things.* — **Saba (34:21)**
+> 📖 *And, lo, God gave you the promise that one of the two [enemy] hosts would fall to you: and you would have liked to seize the less powerful one, whereas it was God's will to prove the truth to be true in accordance with His words, and to wipe out the last remnant of those who denied the truth -* — **Al-Anfaal (8:7)**
 <!-- quran-verse-end -->
 
 ---
