@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the earth will shine bright with her Sus­tainer’s light. And the record [of everyone’s deeds] will be laid bare, and all the prophets will be brought forward, and all [other] witnesses; and judgment will be passed on them all in justice. And they will not be wronged,* — **Az-Zumar (39:69)**
+> 📖 *And yet, he had no power at all over them: [for if We allow him to tempt man,] it is only to the end that We might make a clear distinction between those who [truly] believe in the life to come and those who are in doubt thereof: for thy Sustainer watches over all things.* — **Saba (34:21)**
 <!-- quran-verse-end -->
 
 ---
