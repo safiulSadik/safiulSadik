@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, lo, God gave you the promise that one of the two [enemy] hosts would fall to you: and you would have liked to seize the less powerful one, whereas it was God's will to prove the truth to be true in accordance with His words, and to wipe out the last remnant of those who denied the truth -* — **Al-Anfaal (8:7)**
+> 📖 *and the heat of a blazing fire!* — **Al-Waaqia (56:94)**
 <!-- quran-verse-end -->
 
 ---
