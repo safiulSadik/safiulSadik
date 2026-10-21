@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *“By God, we were most obviously astray* — **Ash-Shu'araa (26:97)**
 <!-- quran-verse-end -->
 
 ---
