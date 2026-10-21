@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“By God, we were most obviously astray* — **Ash-Shu'araa (26:97)**
+> 📖 *The Sustainer of the east and the west [is He]: there is no deity save Him: hence, ascribe to Him alone the power to determine thy fate,* — **Al-Muzzammil (73:9)**
 <!-- quran-verse-end -->
 
 ---
