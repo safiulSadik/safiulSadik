@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *How awesome that laying-bare of the truth!* — **Al-Haaqqa (69:2)**
 <!-- quran-verse-end -->
 
 ---
