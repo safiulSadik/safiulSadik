@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How awesome that laying-bare of the truth!* — **Al-Haaqqa (69:2)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
