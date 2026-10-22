@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to let loose upon them stone-hard blows of chastisement,* — **Adh-Dhaariyat (51:33)**
+> 📖 *and We have made your sleep [a symbol of] death* — **An-Naba (78:9)**
 <!-- quran-verse-end -->
 
 ---
