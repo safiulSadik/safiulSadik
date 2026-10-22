@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
+> 📖 *Say: “There has been appointed for you a Day, which you can neither delay nor advance by a single moment.”* — **Saba (34:30)**
 <!-- quran-verse-end -->
 
 ---
