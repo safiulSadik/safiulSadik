@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then We caused the others to drown.* — **Ash-Shu'araa (26:66)**
+> 📖 *to let loose upon them stone-hard blows of chastisement,* — **Adh-Dhaariyat (51:33)**
 <!-- quran-verse-end -->
 
 ---
