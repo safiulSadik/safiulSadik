@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “There has been appointed for you a Day, which you can neither delay nor advance by a single moment.”* — **Saba (34:30)**
+> 📖 *THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:* — **Fussilat (41:2)**
 <!-- quran-verse-end -->
 
 ---
