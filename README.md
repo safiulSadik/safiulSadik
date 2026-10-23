@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
+> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
 <!-- quran-verse-end -->
 
 ---
