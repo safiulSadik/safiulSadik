@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and know that your worldly goods and your children are but a trial and a temptation, and that with God there is a tremendous reward.* — **Al-Anfaal (8:28)**
+> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
 <!-- quran-verse-end -->
 
 ---
