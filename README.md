@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Still,] behold, We shall postpone this suffer­ing for a little while, although you are bound to revert [to your evil ways: but]* — **Ad-Dukhaan (44:15)**
+> 📖 *And remember the time when you were few [and] helpless on earth, fearful lest people do away with you - whereupon He sheltered you, and strengthened you with His succour, and provided for you sustenance out of the good things of life, so that you might have cause to be grateful.* — **Al-Anfaal (8:26)**
 <!-- quran-verse-end -->
 
 ---
