@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is He who from on high has bestowed inner peace upon the hearts of the believers, so that - seeing that God’s are all the forces of the heavens and the earth, and that God is all-knowing, truly wise - they might grow yet more firm in their faith;* — **Al-Fath (48:4)**
+> 📖 *Yet withal, behold, I forgive all sins unto any who repents and attains to faith and does righteous deeds, and thereafter keeps to the right path.* — **Taa-Haa (20:82)**
 <!-- quran-verse-end -->
 
 ---
