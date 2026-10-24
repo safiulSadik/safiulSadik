@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And remember the time when you were few [and] helpless on earth, fearful lest people do away with you - whereupon He sheltered you, and strengthened you with His succour, and provided for you sustenance out of the good things of life, so that you might have cause to be grateful.* — **Al-Anfaal (8:26)**
+> 📖 *It is He who from on high has bestowed inner peace upon the hearts of the believers, so that - seeing that God’s are all the forces of the heavens and the earth, and that God is all-knowing, truly wise - they might grow yet more firm in their faith;* — **Al-Fath (48:4)**
 <!-- quran-verse-end -->
 
 ---
