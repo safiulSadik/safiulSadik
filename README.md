@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *[Still,] behold, We shall postpone this suffer­ing for a little while, although you are bound to revert [to your evil ways: but]* — **Ad-Dukhaan (44:15)**
 <!-- quran-verse-end -->
 
 ---
