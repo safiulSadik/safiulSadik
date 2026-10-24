@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”* — **Al-Fath (48:12)**
+> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
 <!-- quran-verse-end -->
 
 ---
