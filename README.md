@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet withal, behold, I forgive all sins unto any who repents and attains to faith and does righteous deeds, and thereafter keeps to the right path.* — **Taa-Haa (20:82)**
+> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
 <!-- quran-verse-end -->
 
 ---
