@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
+> 📖 *They believe in God and the Last Day, and enjoin the doing of what is right and forbid the doing of what is wrong, and vie with one another in doing good works: and these are among the righteous.* — **Aal-i-Imraan (3:114)**
 <!-- quran-verse-end -->
 
 ---
