@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
 <!-- quran-verse-end -->
 
 ---
