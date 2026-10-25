@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They believe in God and the Last Day, and enjoin the doing of what is right and forbid the doing of what is wrong, and vie with one another in doing good works: and these are among the righteous.* — **Aal-i-Imraan (3:114)**
+> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
 <!-- quran-verse-end -->
 
 ---
