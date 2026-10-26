@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *[He is] the Sustainer of the two farthest points of sunrise, and the Sustainer of the two farthest points of sunset.* — **Ar-Rahmaan (55:17)**
 <!-- quran-verse-end -->
 
 ---
