@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[He is] the Sustainer of the two farthest points of sunrise, and the Sustainer of the two farthest points of sunset.* — **Ar-Rahmaan (55:17)**
+> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
 <!-- quran-verse-end -->
 
 ---
