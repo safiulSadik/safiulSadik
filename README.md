@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
 <!-- quran-verse-end -->
 
 ---
