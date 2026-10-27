@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Mount Sinai,* — **At-Tin (95:2)**
+> 📖 *On that Day, all dominion shall [visibly] belong to God, He shall judge [all men and make a distinction] between them: thus, all who had attained to faith and did righteous deeds shall find themselves in gardens of bliss,* — **Al-Hajj (22:56)**
 <!-- quran-verse-end -->
 
 ---
