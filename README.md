@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day, all dominion shall [visibly] belong to God, He shall judge [all men and make a distinction] between them: thus, all who had attained to faith and did righteous deeds shall find themselves in gardens of bliss,* — **Al-Hajj (22:56)**
+> 📖 *Nay, but their hearts are corroded by all [the evil] that they were wont to do!* — **Al-Mutaffifin (83:14)**
 <!-- quran-verse-end -->
 
 ---
