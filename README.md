@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
+> 📖 *for, indeed, if you die or are slain, it will surely be unto God that you shall be gathered.* — **Aal-i-Imraan (3:158)**
 <!-- quran-verse-end -->
 
 ---
