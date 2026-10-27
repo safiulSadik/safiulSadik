@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, indeed, if you die or are slain, it will surely be unto God that you shall be gathered.* — **Aal-i-Imraan (3:158)**
+> 📖 *and Mount Sinai,* — **At-Tin (95:2)**
 <!-- quran-verse-end -->
 
 ---
