@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but their hearts are corroded by all [the evil] that they were wont to do!* — **Al-Mutaffifin (83:14)**
+> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
 <!-- quran-verse-end -->
 
 ---
