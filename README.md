@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who do not believe that they are destined to meet Us are wont to say, “Why have no angels been sent down to us?” – or, “Why do we not see our Sustainer?” Indeed, they are far too proud of themselves, hav­ing rebelled [against God’s truth] with utter disdain!* — **Al-Furqaan (25:21)**
+> 📖 *Oh, verily, unto God belongs all that is in the heavens and on earth! Oh, verily, God's promise always comes true-but most of them know it not!* — **Yunus (10:55)**
 <!-- quran-verse-end -->
 
 ---
