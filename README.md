@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, verily, unto God belongs all that is in the heavens and on earth! Oh, verily, God's promise always comes true-but most of them know it not!* — **Yunus (10:55)**
+> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
 <!-- quran-verse-end -->
 
 ---
