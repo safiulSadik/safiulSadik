@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
+> 📖 *[When Solomon learned that the Queen of Sheba was coming,] he said [to his council]: “O you nobles! Which of you can bring me her throne ere she and her followers come unto me in willing surrender to God?”* — **An-Naml (27:38)**
 <!-- quran-verse-end -->
 
 ---
