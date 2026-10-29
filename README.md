@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, the word [of God’s condemnation] is bound to come true against most of them: for they will not believe.* — **Yaseen (36:7)**
+> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
 <!-- quran-verse-end -->
 
 ---
