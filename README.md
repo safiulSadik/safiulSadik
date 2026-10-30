@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[When Solomon learned that the Queen of Sheba was coming,] he said [to his council]: “O you nobles! Which of you can bring me her throne ere she and her followers come unto me in willing surrender to God?”* — **An-Naml (27:38)**
+> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
 <!-- quran-verse-end -->
 
 ---
