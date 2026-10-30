@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.* — **At-Talaaq (65:12)**
+> 📖 *HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?* — **Al-Jaathiya (45:23)**
 <!-- quran-verse-end -->
 
 ---
