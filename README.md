@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?* — **Al-Jaathiya (45:23)**
+> 📖 *[Hence, O men,] respond to your Sustainer before there comes, at God’s behest, a Day on which there will be no turning back: [for] on that Day you will have no place of refuge, and neither will you be able to deny aught [of the wrong that you have done].* — **Ash-Shura (42:47)**
 <!-- quran-verse-end -->
 
 ---
