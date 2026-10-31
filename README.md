@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus they launched forth, whispering unto one another,* — **Al-Qalam (68:23)**
+> 📖 *save those upon whom God will have bestowed His grace and mercy: for, verily, He alone is almighty, a dispenser of grace.* — **Ad-Dukhaan (44:42)**
 <!-- quran-verse-end -->
 
 ---
