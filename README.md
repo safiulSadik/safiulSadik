@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
+> 📖 *about to enter a glowing fire,* — **Al-Ghaashiya (88:4)**
 <!-- quran-verse-end -->
 
 ---
