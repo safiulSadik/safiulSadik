@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save those upon whom God will have bestowed His grace and mercy: for, verily, He alone is almighty, a dispenser of grace.* — **Ad-Dukhaan (44:42)**
+> 📖 *Yet [thus it is] that whenever a servant of God stands up in prayer to Him, they [who are bent on denying the truth] would gladly overwhelm him with their crowds.* — **Al-Jinn (72:19)**
 <!-- quran-verse-end -->
 
 ---
