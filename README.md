@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] verily, those who [falsely, and without repentance,] accuse chaste women who may have been unthinkingly careless but have remained true to their faith, shall be rejected [from God’s grace] in this world as well as in the life to come: and awesome suffering awaits them* — **An-Noor (24:23)**
+> 📖 *O YOU who have attained to faith! Do not take your fathers and your brothers for allies if a denial of the truth is dearer to them than faith: for those of you who ally themselves with them-it is they, they who are evildoers!* — **At-Tawba (9:23)**
 <!-- quran-verse-end -->
 
 ---
