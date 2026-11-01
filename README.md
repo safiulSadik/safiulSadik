@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *about to enter a glowing fire,* — **Al-Ghaashiya (88:4)**
+> 📖 *Now surely, unto Pharaoh’s folk [too] came such warnings;* — **Al-Qamar (54:41)**
 <!-- quran-verse-end -->
 
 ---
