@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not take your fathers and your brothers for allies if a denial of the truth is dearer to them than faith: for those of you who ally themselves with them-it is they, they who are evildoers!* — **At-Tawba (9:23)**
+> 📖 *Therefore, [O believer,] endure all adversity with goodly patience:* — **Al-Ma'aarij (70:5)**
 <!-- quran-verse-end -->
 
 ---
