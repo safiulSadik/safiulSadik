@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now surely, unto Pharaoh’s folk [too] came such warnings;* — **Al-Qamar (54:41)**
+> 📖 *[But,] verily, those who [falsely, and without repentance,] accuse chaste women who may have been unthinkingly careless but have remained true to their faith, shall be rejected [from God’s grace] in this world as well as in the life to come: and awesome suffering awaits them* — **An-Noor (24:23)**
 <!-- quran-verse-end -->
 
 ---
