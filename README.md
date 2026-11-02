@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, then, laugh a little - for they will weep a lot in return for what they have earned.* — **At-Tawba (9:82)**
+> 📖 *Wealth and children are an adornment of this, world's life: but good deeds, the fruit whereof endures forever, are of far greater merit in thy Sustainer's sight, and a far better source of hope.* — **Al-Kahf (18:46)**
 <!-- quran-verse-end -->
 
 ---
