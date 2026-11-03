@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Wealth and children are an adornment of this, world's life: but good deeds, the fruit whereof endures forever, are of far greater merit in thy Sustainer's sight, and a far better source of hope.* — **Al-Kahf (18:46)**
+> 📖 *[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!* — **Al-Mulk (67:20)**
 <!-- quran-verse-end -->
 
 ---
