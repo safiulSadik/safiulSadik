@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!* — **Al-Mulk (67:20)**
+> 📖 *Yet they say: What sort of apostle is this [man] who eats food [like all other mortals] and goes about in the market places? Why has not an angel [visibly] been sent down unto him, to act as a warner together with him?”* — **Al-Furqaan (25:7)**
 <!-- quran-verse-end -->
 
 ---
