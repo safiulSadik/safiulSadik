@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet they say: What sort of apostle is this [man] who eats food [like all other mortals] and goes about in the market places? Why has not an angel [visibly] been sent down unto him, to act as a warner together with him?”* — **Al-Furqaan (25:7)**
+> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
 <!-- quran-verse-end -->
 
 ---
