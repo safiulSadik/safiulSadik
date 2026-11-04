@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, it is God [alone] who upholds the celestial bodies and the earth, lest they deviate [from their orbits] - for if they should ever deviate, there is none that could uphold them after He will have ceased to do so. [But,] verily, He is ever-forbearing, much-for­giving!* — **Faatir (35:41)**
+> 📖 *Verily, that which you are promised is true indeed,* — **Adh-Dhaariyat (51:5)**
 <!-- quran-verse-end -->
 
 ---
