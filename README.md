@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, that which you are promised is true indeed,* — **Adh-Dhaariyat (51:5)**
+> 📖 *And God propounds [to you] the parable of two [other] men -one of them dumb, unable to do anything of his own accord, and a sheer burden on his master: to whichever task the latter directs him, he accomplishes no good. Can such a one be considered the equal of [a wise man] who enjoins the doing of what is right and himself follows a straight way?* — **An-Nahl (16:76)**
 <!-- quran-verse-end -->
 
 ---
