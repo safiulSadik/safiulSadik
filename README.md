@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and cushions ranged,* — **Al-Ghaashiya (88:15)**
+> 📖 *enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!* — **Ad-Dukhaan (44:11)**
 <!-- quran-verse-end -->
 
 ---
