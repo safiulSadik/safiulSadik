@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, the chargers that run panting,* — **Al-Aadiyaat (100:1)**
+> 📖 *Thus it was. And [then] We made another people heirs [to what they had left],* — **Ad-Dukhaan (44:28)**
 <!-- quran-verse-end -->
 
 ---
