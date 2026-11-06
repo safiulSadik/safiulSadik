@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they would lie asleep during but a small part of the night,* — **Adh-Dhaariyat (51:17)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:21)**
 <!-- quran-verse-end -->
 
 ---
