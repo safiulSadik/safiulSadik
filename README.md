@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:21)**
+> 📖 *Oh, the chargers that run panting,* — **Al-Aadiyaat (100:1)**
 <!-- quran-verse-end -->
 
 ---
