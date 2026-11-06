@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!* — **Ad-Dukhaan (44:11)**
+> 📖 *they would lie asleep during but a small part of the night,* — **Adh-Dhaariyat (51:17)**
 <!-- quran-verse-end -->
 
 ---
