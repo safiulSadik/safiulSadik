@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *and, behold, this is indeed a most solemn affirmation, if you but knew it!* — **Al-Waaqia (56:76)**
 <!-- quran-verse-end -->
 
 ---
