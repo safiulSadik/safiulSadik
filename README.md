@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, this is indeed a most solemn affirmation, if you but knew it!* — **Al-Waaqia (56:76)**
+> 📖 *God will requite them for their mockery, and will leave them for a while in their overweening arrogance, blindly stumbling to and fro:* — **Al-Baqara (2:15)**
 <!-- quran-verse-end -->
 
 ---
