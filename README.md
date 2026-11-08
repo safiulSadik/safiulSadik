@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!* — **Al-Hashr (59:19)**
+> 📖 *And so We caused the gates of heaven to open with water pouring down in torrents,* — **Al-Qamar (54:11)**
 <!-- quran-verse-end -->
 
 ---
