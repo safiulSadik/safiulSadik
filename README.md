@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God will requite them for their mockery, and will leave them for a while in their overweening arrogance, blindly stumbling to and fro:* — **Al-Baqara (2:15)**
+> 📖 *notwithstanding that no human being can ever attain to faith otherwise than by God's leave, and [that] it is He who lays the loathsome evil [of disbelief] upon those who will not use -their reason?* — **Yunus (10:100)**
 <!-- quran-verse-end -->
 
 ---
