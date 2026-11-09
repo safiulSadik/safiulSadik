@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *upon thy heart, [O Muhammad] so that thou mayest be among those who preach* — **Ash-Shu'araa (26:194)**
 <!-- quran-verse-end -->
 
 ---
