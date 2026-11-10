@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in the end he turns his back [on Our message], and glories in his arrogance,* — **Al-Muddaththir (74:23)**
+> 📖 *Said he: “Do [you really think that] they hear you when you invoke them,* — **Ash-Shu'araa (26:72)**
 <!-- quran-verse-end -->
 
 ---
