@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!* — **Al-Jumu'a (62:3)**
+> 📖 *and in the end he turns his back [on Our message], and glories in his arrogance,* — **Al-Muddaththir (74:23)**
 <!-- quran-verse-end -->
 
 ---
