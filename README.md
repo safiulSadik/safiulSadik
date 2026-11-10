@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *upon thy heart, [O Muhammad] so that thou mayest be among those who preach* — **Ash-Shu'araa (26:194)**
+> 📖 *he that spends his possessions [on others] so that he might grow in purity –* — **Al-Lail (92:18)**
 <!-- quran-verse-end -->
 
 ---
