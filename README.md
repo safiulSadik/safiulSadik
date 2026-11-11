@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has made the mountains firm:* — **An-Naazi'aat (79:32)**
+> 📖 *Hence, defer not to [the likes and dislikes of] those who give the lie to the truth:* — **Al-Qalam (68:8)**
 <!-- quran-verse-end -->
 
 ---
