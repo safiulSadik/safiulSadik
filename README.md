@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, defer not to [the likes and dislikes of] those who give the lie to the truth:* — **Al-Qalam (68:8)**
+> 📖 *nor the [cooling] shade and the scorching heat:* — **Faatir (35:21)**
 <!-- quran-verse-end -->
 
 ---
