@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nor the [cooling] shade and the scorching heat:* — **Faatir (35:21)**
+> 📖 *for, none gives the lie to it but such as are wont to transgress against all that is [and are] immersed in sin:* — **Al-Mutaffifin (83:12)**
 <!-- quran-verse-end -->
 
 ---
