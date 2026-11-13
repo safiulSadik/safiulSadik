@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is God who has made the earth a resting- place for you and the sky a canopy, and has formed you - and formed you so well and provided for you sustenance out of the good things of life. Such is God, your Sustainer: hallowed, then, is God, the Sustainer of all the worlds!* — **Ghafir (40:64)**
+> 📖 *[ONE DAY] We shall take you to task, O you sin-laden two!* — **Ar-Rahmaan (55:31)**
 <!-- quran-verse-end -->
 
 ---
