@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O wives of the Prophet!] Were he to divorce [any of] you, God might well give him in your stead spouses better than you - women who surrender themselves unto God, who truly believe, devoutly obey His will, turn [unto Him] in repentance [whenever they have sinned] worship [Him alone] and go on and on [seeking His goodly acceptance] - be they women previously married or virgins.* — **At-Tahrim (66:5)**
+> 📖 *It is God who has made the earth a resting- place for you and the sky a canopy, and has formed you - and formed you so well and provided for you sustenance out of the good things of life. Such is God, your Sustainer: hallowed, then, is God, the Sustainer of all the worlds!* — **Ghafir (40:64)**
 <!-- quran-verse-end -->
 
 ---
