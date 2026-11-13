@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[ONE DAY] We shall take you to task, O you sin-laden two!* — **Ar-Rahmaan (55:31)**
+> 📖 *when he turned to his Sustainer with a heart free of evil,* — **As-Saaffaat (37:84)**
 <!-- quran-verse-end -->
 
 ---
