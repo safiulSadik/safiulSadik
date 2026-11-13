@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when he turned to his Sustainer with a heart free of evil,* — **As-Saaffaat (37:84)**
+> 📖 *And thereupon We caused the earth to swallow him and his dwelling; and he had none and nothing to succour him against God, nor was he of those who could succour themselves.* — **Al-Qasas (28:81)**
 <!-- quran-verse-end -->
 
 ---
