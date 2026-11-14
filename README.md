@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
+> 📖 *"'And God has caused you to grow out of the earth in [gradual] growth; and thereafter He will return you to it [in death]:* — **Nooh (71:17)**
 <!-- quran-verse-end -->
 
 ---
