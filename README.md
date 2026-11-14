@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in that [hell] they will cry aloud: “O our Sustainer! Cause us to come out [of this suffering]! We shall [henceforth] do good deeds, not such as we were wont to do [aforetime]!” [But We shall answer:] “Did We not grant you a life long enough so that whoever was willing to take thought could bethink himself? And [withal,] a war­ner had come unto you! Taste, then, [the fruit of your evil deeds]: for evildoers shall have none to succour them!”* — **Faatir (35:37)**
+> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
 <!-- quran-verse-end -->
 
 ---
