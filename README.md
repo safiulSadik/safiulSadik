@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GOD'S JUDGMENT is [bound to] come: do not, therefore, call for its speedy advent! Limitless is He in His glory and sublimely exalted above anything to which men may ascribe a share in His divinity!* — **An-Nahl (16:1)**
+> 📖 *Said Moses: "Do you speak thus of the truth after it has been brought to you? Can this be sorcery? But sorcerers can never come to a happy end!"* — **Yunus (10:77)**
 <!-- quran-verse-end -->
 
 ---
