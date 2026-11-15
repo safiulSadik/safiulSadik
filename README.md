@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God knows the hidden reality of the heavens and the earth: [and,] behold, He has full knowledge of what is in the hearts [of men].* — **Faatir (35:38)**
+> 📖 *GOD'S JUDGMENT is [bound to] come: do not, therefore, call for its speedy advent! Limitless is He in His glory and sublimely exalted above anything to which men may ascribe a share in His divinity!* — **An-Nahl (16:1)**
 <!-- quran-verse-end -->
 
 ---
