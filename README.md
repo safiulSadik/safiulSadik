@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And so they have led many a one astray: hence, ordain Thou that these evildoers stray but farther and farther away [from all that they may desire]!"* — **Nooh (71:24)**
+> 📖 *Verily, God knows the hidden reality of the heavens and the earth: [and,] behold, He has full knowledge of what is in the hearts [of men].* — **Faatir (35:38)**
 <!-- quran-verse-end -->
 
 ---
