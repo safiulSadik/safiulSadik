@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, those who are near unto thy Sustainer are never too proud to worship Him; and they extol His limitless glory, and prostrate themselves before Him [alone].* — **Al-A'raaf (7:206)**
+> 📖 *Said [Moses]: "Take-me not to task for my having forgotten [myself], and be not hard on me on account of what I have done!"* — **Al-Kahf (18:73)**
 <!-- quran-verse-end -->
 
 ---
