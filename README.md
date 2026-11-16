@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Moses]: "Take-me not to task for my having forgotten [myself], and be not hard on me on account of what I have done!"* — **Al-Kahf (18:73)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
