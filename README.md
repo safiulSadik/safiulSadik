@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said Moses: "Do you speak thus of the truth after it has been brought to you? Can this be sorcery? But sorcerers can never come to a happy end!"* — **Yunus (10:77)**
+> 📖 *Behold, those who are near unto thy Sustainer are never too proud to worship Him; and they extol His limitless glory, and prostrate themselves before Him [alone].* — **Al-A'raaf (7:206)**
 <!-- quran-verse-end -->
 
 ---
