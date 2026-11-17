@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
