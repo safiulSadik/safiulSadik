@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that [bounty] whereof God gives the glad tiding to such of His servants as attain to faith and do righteous deeds. Say [O Prophet]: “No reward do I ask of you for this [message] other than [that you should] love your fellow-men.” For, if anyone gains [the merit of] a good deed, We shall grant him through it an increase of good: and, verily, God is much-forgiving, ever responsive to gratitude.* — **Ash-Shura (42:23)**
+> 📖 *And know that God’s Apostle is among you: were he to comply with your inclinations in each and every case, you would be bound to come to harm [as a community]. But as it is, God has caused [your] faith to be dear to you, and has given it beauty in your hearts, and has made hateful to you all denial of the truth, and all iniquity, and all rebellion [against what is good]. Such indeed are they who follow the right course* — **Al-Hujuraat (49:7)**
 <!-- quran-verse-end -->
 
 ---
