@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, towards his Sustainer man is most ungrateful* — **Al-Aadiyaat (100:6)**
+> 📖 *Whoever does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt; and in the end unto your Sustainer you all will be brought back.* — **Al-Jaathiya (45:15)**
 <!-- quran-verse-end -->
 
 ---
