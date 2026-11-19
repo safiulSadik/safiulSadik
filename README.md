@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
+> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
 <!-- quran-verse-end -->
 
 ---
