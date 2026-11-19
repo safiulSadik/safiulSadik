@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Thus, part of such war-gains shall be given] to the poor among those who have forsaken the domain of evil: those who have been driven from their homelands and their possessions, seeking favour with God and [His] goodly acceptance, and who aid [the cause of] God and His Apostle: it is they, they who are true to their word!* — **Al-Hashr (59:8)**
+> 📖 *And [so Noah] set himself to building the ark; and every time the great ones of his people passed by him, they scoffed at him. [Thereupon] he said: "If you are scoffing at us-behold, we are scoffing at you [and your ignorance], just as you are scoffing at us.* — **Hud (11:38)**
 <!-- quran-verse-end -->
 
 ---
