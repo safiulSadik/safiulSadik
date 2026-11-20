@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW WHEN you meet [in war] those who are bent on denying the truth, smite their necks until you overcome them fully, and then tighten their bonds; but thereafter [set them free,] either by an act of grace or against ransom, so that the burden of war may be lifted: thus [shall it be]. And [know that] had God so willed, He could indeed punish them [Himself]; but [He wills you to struggle] so as to test you [all] by means of one another. And as for those who are slain in God’s cause, never will He let their deeds go to waste:* — **Muhammad (47:4)**
+> 📖 *[Hence,] let the women [who are undergoing a waiting-period] live in the same manner as you live yourselves, In accordance with your means; and do not harass them with a view to making their lives a misery. And if they happen to be with child, spend freely on them until they deliver their burden; and if they nurse your offspring [after the divorce has become final], give them their [due] recompense; and take counsel with one another in a fair manner [about the child's future]. And if both of you find it difficult [that the mother should nurse the child], let another woman nurse it on behalf of him [who has begotten it].* — **At-Talaaq (65:6)**
 <!-- quran-verse-end -->
 
 ---
