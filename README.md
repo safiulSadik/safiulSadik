@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [so Noah] set himself to building the ark; and every time the great ones of his people passed by him, they scoffed at him. [Thereupon] he said: "If you are scoffing at us-behold, we are scoffing at you [and your ignorance], just as you are scoffing at us.* — **Hud (11:38)**
+> 📖 *NOW WHEN you meet [in war] those who are bent on denying the truth, smite their necks until you overcome them fully, and then tighten their bonds; but thereafter [set them free,] either by an act of grace or against ransom, so that the burden of war may be lifted: thus [shall it be]. And [know that] had God so willed, He could indeed punish them [Himself]; but [He wills you to struggle] so as to test you [all] by means of one another. And as for those who are slain in God’s cause, never will He let their deeds go to waste:* — **Muhammad (47:4)**
 <!-- quran-verse-end -->
 
 ---
