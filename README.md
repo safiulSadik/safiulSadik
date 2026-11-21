@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],* — **Al-A'laa (87:3)**
+> 📖 *Does man imagine that it is his due to have all that he might wish for,* — **An-Najm (53:24)**
 <!-- quran-verse-end -->
 
 ---
