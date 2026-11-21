@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does man imagine that it is his due to have all that he might wish for,* — **An-Najm (53:24)**
+> 📖 *This [for you, O enemies of God]! Taste it, then, [and know] that suffering through fire awaits those who deny the truth!* — **Al-Anfaal (8:14)**
 <!-- quran-verse-end -->
 
 ---
