@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [for you, O enemies of God]! Taste it, then, [and know] that suffering through fire awaits those who deny the truth!* — **Al-Anfaal (8:14)**
+> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
 <!-- quran-verse-end -->
 
 ---
