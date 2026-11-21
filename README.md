@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] Job, when he cried out to his Sus­tainer, “Affliction has befallen me: but Thou art the most merciful of the merciful!”* — **Al-Anbiyaa (21:83)**
+> 📖 *and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],* — **Al-A'laa (87:3)**
 <!-- quran-verse-end -->
 
 ---
