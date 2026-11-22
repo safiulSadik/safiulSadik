@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when their excuses will be of no avail to the evildoers, seeing that their lot will be rejection from all that is good, and a woeful hereafter.* — **Ghafir (40:52)**
+> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
 <!-- quran-verse-end -->
 
 ---
