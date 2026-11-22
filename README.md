@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
+> 📖 *NAY, VERILY, these [messages] are but a reminder:* — **Abasa (80:11)**
 <!-- quran-verse-end -->
 
 ---
