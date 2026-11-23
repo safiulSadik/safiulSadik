@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
+> 📖 *and said, "I am your Lord All-Highest!"* — **An-Naazi'aat (79:24)**
 <!-- quran-verse-end -->
 
 ---
