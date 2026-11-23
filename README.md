@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
+> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
 <!-- quran-verse-end -->
 
 ---
