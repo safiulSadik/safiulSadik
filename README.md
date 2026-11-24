@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who have attained to faith and done righteous deeds, their Sustainer will admit them to His grace: that will be [their] manifest triumph!* — **Al-Jaathiya (45:30)**
+> 📖 *He it is who bestows His blessings upon you, with His angels [echoing Him], so that He might take you out of the depths of darkness into the light. And, indeed, a dispenser of grace is He unto the believers.* — **Al-Ahzaab (33:43)**
 <!-- quran-verse-end -->
 
 ---
