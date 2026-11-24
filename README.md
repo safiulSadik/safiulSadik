@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and said, "I am your Lord All-Highest!"* — **An-Naazi'aat (79:24)**
+> 📖 *Now as for those who have attained to faith and done righteous deeds, their Sustainer will admit them to His grace: that will be [their] manifest triumph!* — **Al-Jaathiya (45:30)**
 <!-- quran-verse-end -->
 
 ---
