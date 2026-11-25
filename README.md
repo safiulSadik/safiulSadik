@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
+> 📖 *God deprives usurious gains of all blessing, whereas He blesses charitable deeds with manifold increase. And God does not love anyone who is stubbornly ingrate and persists in sinful ways.* — **Al-Baqara (2:276)**
 <!-- quran-verse-end -->
 
 ---
