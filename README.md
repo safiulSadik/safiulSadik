@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who bestows His blessings upon you, with His angels [echoing Him], so that He might take you out of the depths of darkness into the light. And, indeed, a dispenser of grace is He unto the believers.* — **Al-Ahzaab (33:43)**
+> 📖 *Nay, but they [who refuse to believe in resurrection] have been wont to give the lie to this truth whenever it was proffered to them; and so they are in a state of confusion.* — **Qaaf (50:5)**
 <!-- quran-verse-end -->
 
 ---
